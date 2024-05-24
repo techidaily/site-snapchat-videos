@@ -1,7 +1,7 @@
 ---
 title: "\"Securing Your Snapchat Memories  Mobile Recorders' Guide for 2024\""
-date: 2024-05-21 22:30:15
-updated: 2024-05-23 12:27:41
+date: 2024-05-23T10:27:01.346Z
+updated: 2024-05-24T10:27:01.346Z
 tags:
   - ai video
   - ai snapchat
@@ -989,3 +989,107 @@ Follow @Shanoon Cox
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-enhance-engagement-with-these-15-snap-insights/"><u>[New] 2024 Approved  Enhance Engagement with These 15 Snap Insights</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-unraveling-the-enigma-creating-hidden-snapstories/"><u>[Updated] 2024 Approved  Unraveling the Enigma  Creating Hidden Snapstories</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-mac-recording-settings-for-snapchat-use-for-2024/"><u>[New] Mastering Mac Recording Settings for Snapchat Use for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snapchat-voice-overhaul-two-efficient-ways-revealed-for-2024/"><u>[Updated] Snapchat Voice Overhaul  Two Efficient Ways Revealed for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/guide-to-accurate-transfer-of-camera-photos-to-social-media-apps-for-2024/"><u>Guide to Accurate Transfer of Camera Photos to Social Media Apps for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-chromatic-charisma-mastering-colorful-filters-on-snapchat/"><u>[New] In 2024, Chromatic Charisma  Mastering Colorful Filters on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-capture-attention-with-top-mobile-video-editing-software-for-snapchats/"><u>2024 Approved  Capture Attention with Top Mobile Video Editing Software for Snapchats</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-ultimate-snapchat-boomerang-handbook/"><u>[New] In 2024, The Ultimate Snapchat Boomerang Handbook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-art-of-music-infused-snapchatting/"><u>[New] 2024 Approved  The Art of Music-Infused Snapchatting</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-art-of-sustaining-snapstreaks-for-hours-on-end/"><u>[New] The Art of Sustaining Snapstreaks for Hours on End</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-seamless-integration-mac-recording-techniques-for-snapchat/"><u>[Updated] In 2024, Seamless Integration  Mac Recording Techniques for Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-boosting-meeting-impact-with-simple-snap-camera-steps/"><u>[New] In 2024, Boosting Meeting Impact with Simple Snap Camera Steps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-perfect-pairing-transferring-camera-roll-content-effortlessly-to-snapchat/"><u>[Updated] 2024 Approved  Perfect Pairing  Transferring Camera Roll Content Effortlessly to Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-step-by-step-to-smiles-and-laughter-your-snapchat-gif-tutorial-for-2024/"><u>[New] Step-by-Step to Smiles and Laughter  Your Snapchat Gif Tutorial for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-instant-upload-share-pics-directly-from-your-camera-roll/"><u>[New] Instant Upload  Share Pics Directly From Your Camera Roll</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-innovate-your-images-with-leading-snapchat-effects/"><u>[Updated] In 2024, Innovate Your Images with Leading Snapchat Effects</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-drive-sales-through-smart-use-of-snapchats-tools/"><u>[New] 2024 Approved  Drive Sales Through Smart Use of Snapchat's Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-navigate-the-transfer-of-social-media-photos-to-hard-drive/"><u>[Updated] In 2024, Navigate the Transfer of Social Media Photos to Hard Drive</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-installing-snapchat-a-mac-owners-handbook/"><u>[New] In 2024, Installing Snapchat  A Mac Owner's Handbook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-quick-and-easy-snapchat-image-manipulation-techniques-for-2024/"><u>[Updated] Quick and Easy Snapchat Image Manipulation Techniques for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unleash-your-inner-manga-learn-snapchats-anime-filter-magic-for-2024/"><u>[New] Unleash Your Inner Manga  Learn Snapchat's Anime Filter Magic for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-identifying-if-someone-has-removed-you-from-their-snap-circle/"><u>[Updated] Identifying if Someone Has Removed You From Their Snap Circle</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-keep-your-snaps-secret-stealthy-photo-taking-tricks-for-snapchat/"><u>[New] Keep Your Snaps Secret  Stealthy Photo Taking Tricks for Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-pacing-perfection-controlling-frame-rates-on-snapchat-for-2024/"><u>[Updated] Pacing Perfection  Controlling Frame Rates on Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-go-digital-go-social-send-snaps-instantly/"><u>2024 Approved  Go Digital, Go Social  Send Snaps Instantly</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-from-basic-to-brilliant-the-ultimate-snapchat-filter-journey/"><u>[Updated] From Basic to Brilliant  The Ultimate Snapchat Filter Journey</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-simplified-techniques-for-creating-and-modifying-multiple-snaps-in-snapchat/"><u>[New] In 2024, Simplified Techniques for Creating and Modifying Multiple Snaps in Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-top-trending-snapchat-augmentations-for-your-photos/"><u>In 2024, Top Trending Snapchat Augmentations for Your Photos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-maximizing-your-monetary-gains-on-social-media-with-snapchat/"><u>[Updated] 2024 Approved  Maximizing Your Monetary Gains on Social Media with Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-precision-in-photograph-preservation-phone-to-snapchat-guide/"><u>In 2024, Precision in Photograph Preservation  Phone to Snapchat Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unleash-creativity-in-snaps-15-innovative-posting-techniques-for-2024/"><u>[New] Unleash Creativity in Snaps  15 Innovative Posting Techniques for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-art-of-music-infused-snapchatting/"><u>[Updated] The Art of Music-Infused Snapchatting</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-keep-your-snaps-secret-stealthy-photo-taking-tricks-for-snapchat/"><u>2024 Approved  Keep Your Snaps Secret  Stealthy Photo Taking Tricks for Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-bring-your-imagination-to-life-anime-style-filters-on-snapchat/"><u>[New] In 2024, Bring Your Imagination to Life  Anime Style Filters on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/optimize-video-playback-with-snapchat-tricks-for-2024/"><u>Optimize Video Playback with Snapchat Tricks for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/snapchats-artistry-a-compreayer-of-the-ultimate-boomerang-method-for-2024/"><u>Snapchat's Artistry  A Compreayer of the Ultimate Boomerang Method for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-add-flair-with-gifs-on-snapchat-a-comprehensive-walkthrough/"><u>[Updated] In 2024, Add Flair with GIFs on Snapchat – A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-identifying-unresponsiveness-signs-someone-has-blocked-on-snapchat-for-2024/"><u>[Updated] Identifying Unresponsiveness  Signs Someone Has Blocked on Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-push-the-boundaries-of-your-snapchat-presence-customize-voices-now-for-2024/"><u>[New] Push the Boundaries of Your Snapchat Presence  Customize Voices Now for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-how-to-reverse-a-video-on-snapchat-complete-guide/"><u>[New] 2024 Approved  How to Reverse a Video on Snapchat? [Complete Guide]</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-turn-your-screen-time-into-earnings/"><u>[New] In 2024, Turn Your Screen Time Into Earnings</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/revolutionize-your-snapchat-with-smart-boomerangs-for-2024/"><u>Revolutionize Your Snapchat with Smart Boomerangs for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-easy-guide-initiating-a-call-or-chat-on-snapchat/"><u>In 2024, The Easy Guide  Initiating a Call or Chat on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-stand-out-on-social-media-discover-a-hundredplus-creative-frameworks-for-your-snap-stories/"><u>[New] In 2024, Stand Out on Social Media  Discover a Hundred+ Creative Frameworks for Your Snap Stories</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/effective-ways-to-capture-and-save-snapchat-media-on-phone-for-2024/"><u>Effective Ways to Capture and Save Snapchat Media on Phone for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-revolutionize-your-photo-taking-experience-a-guide-to-snapchats-editing-tools/"><u>[New] 2024 Approved  Revolutionize Your Photo-Taking Experience  A Guide to Snapchat's Editing Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-the-art-of-backward-movies-on-snapchat/"><u>[New] Mastering the Art of Backward Movies on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-craft-compelling-snapchats-on-ios-and-android-top-6-apps-for-2024/"><u>[New] Craft Compelling Snapchats on iOS & Android - Top 6 Apps for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-step-by-step-tutorial-capturing-snapchat-moments/"><u>[New] 2024 Approved  Step-by-Step Tutorial  Capturing Snapchat Moments</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-innovative-ideas-for-snapad-success-in-business/"><u>[New] 2024 Approved  Innovative Ideas for SnapAd Success in Business</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/optimizing-twitter-clips-for-instagram-display/"><u>Optimizing Twitter Clips for Instagram Display</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-advanced-6-private-film-repositories/"><u>[New] In 2024, Advanced 6 Private Film Repositories</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/mobile-video-editing-with-music-top-apps-for-android-and-ios/"><u>Mobile Video Editing with Music Top Apps for Android and iOS</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-breaking-barriers-to-sound-in-twitters-visual-share/"><u>[Updated] Breaking Barriers to Sound in Twitter's Visual Share</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-devicenetworkbrowser-requirements-virbo-ai-live-stream-for-2024/"><u>Updated Device/Network/Browser Requirements | Virbo AI Live Stream for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-s-leading-text-motion-tracking-and-animation-platforms/"><u>2024 Approved S Leading Text Motion Tracking and Animation Platforms</u></a></li>
+<li><a href="https://video-capture.techidaily.com/echopause-visual-record-advice-for-2024/"><u>EchoPause Visual Record Advice for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-unbiased-avs-video-editor-review-is-it-right-for-you/"><u>Updated In 2024, Unbiased AVS Video Editor Review Is It Right for You?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/elitemac-pro-the-best-in-high-quality-video-and-audio-recording-for-2024/"><u>EliteMac Pro  The Best in High-Quality Video & Audio Recording for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-leveraging-nvidia-tools-for-screen-capture/"><u>[New] In 2024, Leveraging NVIDIA Tools for Screen Capture</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-from-apple-iphone-11-pro-max-by-drfone-ios/"><u>How To Remove the Two Factor Authentication From Apple iPhone 11 Pro Max</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-the-ultimate-list-8-best-video-editing-apps-for-4k-proxy-videos/"><u>Updated 2024 Approved The Ultimate List 8 Best Video Editing Apps for 4K Proxy Videos</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-elevating-video-clarity-methods-for-eradicating-inaudible-roughness-in-soundtracks/"><u>New In 2024, Elevating Video Clarity Methods for Eradicating Inaudible Roughness in Soundtracks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unleashing-potential-sharing-youtube-content-within-instagram-stories/"><u>[Updated] Unleashing Potential  Sharing YouTube Content Within Instagram Stories</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-zte-nubia-flip-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on ZTE Nubia Flip 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-top-5-free-screen-recorder-extensions-for-chromebooks/"><u>[New] TOP 5 Free Screen Recorder Extensions for Chromebooks</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-slicephoto-inspection-for-2024/"><u>[Updated] SlicePhoto Inspection for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-videopad-video-editor-a-detailed-review-and-comparison-with-other-editors/"><u>In 2024, Videopad Video Editor A Detailed Review and Comparison with Other Editors</u></a></li>
+<li><a href="https://techidaily.com/sign-doc-file-online-for-free-by-ldigisigner-sign-a-word-sign-a-word/"><u>Sign .doc file Online for Free</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-from-iphone-8-plus-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out From iPhone 8 Plus How to Bypass?</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-vanguard-womans-phonetic-alteration-service-online-free-edition/"><u>New Vanguard Womans Phonetic Alteration Service Online - Free Edition</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-an-mp4-on-sony-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How to play an MP4 on Sony ?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-premier-economical-music-file-processor-for-macos-for-2024/"><u>Updated Premier Economical Music File Processor for macOS for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/1714289239817-new-sometimes-you-want-to-retain-the-audio-of-a-video-and-here-you-need-to-convert-the-video-to-mp3-lets-look-at-the-top-10-such-tools-without-any-further-a/"><u>New Sometimes, You Want to Retain the Audio of a Video, and Here You Need to Convert the Video to MP3. Lets Look at the Top 10 Such Tools without Any Further Ado for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-quicksnap-hd-pro-logging-kit/"><u>2024 Approved  QuickSnap HD Pro Logging Kit</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-expert-video-editing-on-mac-the-power-of-adobe-premiere-pro-for-2024/"><u>Updated Expert Video Editing on Mac The Power of Adobe Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-2023-top-10-facebook-video-players/"><u>[New] In 2024, 2023 | Top 10 Facebook Video Players</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-song-selection-spectrum-discovering-the-perfect-soundtrack-for-every-montage-visionary-project/"><u>Updated In 2024, Song Selection Spectrum Discovering the Perfect Soundtrack for Every Montage Visionary Project</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-perfecting-video-captures-advanced-tips-for-your-laptop/"><u>2024 Approved  Perfecting Video Captures  Advanced Tips for Your Laptop</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-step-by-step-techniques-for-sharing-videos-on-instagram/"><u>[New] Step-by-Step Techniques for Sharing Videos on Instagram</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-all-about-apple-iphone-13-unlock-chip-you-need-to-know-by-drfone-ios/"><u>In 2024, All About Apple iPhone 13 Unlock Chip You Need to Know</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/castcritique-report-for-2024/"><u>CastCritique Report for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-from-your-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password From your iPhone 6s Plus</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-best-free-tool-your-android-unhindered/"><u>[Updated] 2024 Approved  Best Free Tool  Your Android, Unhindered</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-for-2024/"><u>Updated How to Create Funny Talking Avatars Using Oddcast Text to Speech for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-2023s-leading-facebook-lite-video-downloader-tools/"><u>[New] In 2024, 2023'S Leading Facebook Lite Video Downloader Tools</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/2024-approved-from-video-to-gif-28-recommended-converters/"><u>2024 Approved From Video to GIF 28 Recommended Converters</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/crafting-powerful-hashtags-for-fb-brand-identity/"><u>Crafting Powerful Hashtags for FB Brand Identity</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-avi-editor-for-windows-8-easily-edit-avi-files-on-pc/"><u>Updated 2024 Approved AVI Editor for Windows 8 Easily Edit AVI Files on PC</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-applying-the-effect-of-camera-shake-in-video-creation/"><u>2024 Approved Applying the Effect of Camera Shake in Video Creation</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/top-10-glitch-art-video-editing-apps-for-ios-and-android/"><u>Top 10 Glitch Art Video Editing Apps for iOS and Android</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unlock-free-content-with-these-top-7-tools-for-instagram-video-editing/"><u>2024 Approved  Unlock Free Content with These Top 7 Tools for Instagram Video Editing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-overcoming-grey-screens-in-gaming-recording/"><u>[Updated] 2024 Approved  Overcoming Grey Screens in Gaming Recording</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/perfecting-the-art-of-filming-and-post-production-with-adobe-connects-features-for-2024/"><u>Perfecting the Art of Filming & Post-Production with Adobe Connect's Features for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-realme-gt-5-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Realme GT 5 Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-musical-enhancements-for-social-video-sharing-platforms-fb/"><u>[New] 2024 Approved  Musical Enhancements for Social Video Sharing Platforms (FB)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-fb-ad-videos-made-easy-utilize-free-video-making-kit/"><u>[Updated] In 2024, FB Ad Videos Made Easy  Utilize Free Video-Making Kit</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-streamlined-approach-record-movies-everywhere-you-go/"><u>[New] 2024 Approved  Streamlined Approach  Record Movies Everywhere You Go</u></a></li>
+</ul></div>
+
