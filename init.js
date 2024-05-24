@@ -8,9 +8,9 @@ const fs = require('fs');
 const path = require('path');
 
 // ------------------------------------------------------------------------------------------- 以下内容需要自己替换
-const subSiteAuthor = 'Nova';
-const subSiteKeywords = `` + ','; // 关键字，多个关键字用逗号分隔
-const indexNowKey = 'ec9c9516ea82433086d979e16e1960e0'; // 替换为你的API密钥
+const subSiteAuthor = 'Scott';
+const subSiteKeywords = `Videos on Snapchat,Snapchat video posts,Snapchat video updates,Snapchat video sharing,Snapchat video content,Snapchat video footage,Snapchat video recordings,Snapchat video streams,Snapchat video files` + ','; // 关键字，多个关键字用逗号分隔
+const indexNowKey = '1fa3091c5fc2439583b22819ddc7a885'; // 替换为你的API密钥
 
 
 

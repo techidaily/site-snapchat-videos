@@ -3,17 +3,17 @@
 ## Source: https://github.com/hexojs/hexo/
 
 # Site
-title: TechiDaily
+title: Snapchat Videos
 subtitle: 'Enjoy life easier but more creative!'
-description: 'TechiDaily is the largest, most trusted online solution for everyone to learn, share their knowledge, and help other people.'
-keywords: 'Tools, File explorer, Convert, Repair tools, data recovery'
-author: Nova
+description: 'Snapchat Videos is the largest, most trusted online solution for everyone to learn, share their knowledge, and help other people.'
+keywords: 'Videos on Snapchat,Snapchat video posts,Snapchat video updates,Snapchat video sharing,Snapchat video content,Snapchat video footage,Snapchat video recordings,Snapchat video streams,Snapchat video files, Tools, File explorer, Convert, Repair tools, data recovery'
+author: Scott
 language: en
 timezone: ''
 
 # URL
 ## Set your site url here. For example, if you use GitHub Page, set url as 'https://username.github.io/project'
-url: https://android-transfer.techidaily.com
+url: https://snapchat-videos.techidaily.com
 permalink: :title/
 permalink_defaults:
 pretty_urls:
@@ -112,9 +112,9 @@ sitemap:
 ## 执行 hexo clean && hexo deploy 。
 ## 如果提交失败
 ## cd .deploy_git
-## git push -u git@github.com:techidaily/site-android-transfer.git HEAD:gh-pages --force
+## git push -u git@github.com:techidaily/site-snapchat-videos.git HEAD:gh-pages --force
 deploy:
   type: git
   repo:  
-    url: git@github.com:techidaily/site-android-transfer.git
+    url: git@github.com:techidaily/site-snapchat-videos.git
     branch: gh-pages
