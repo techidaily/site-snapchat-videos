@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Revisiting Old Photos  Sending Them as Snaps on Snapchat\""
-date: 2024-05-23T10:25:04.424Z
-updated: 2024-05-24T10:25:04.424Z
+date: 2024-06-10T11:57:15.575Z
+updated: 2024-06-11T11:57:15.575Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Revisiting Old Photos: Sending Them as Snaps on Snapchat\""
 excerpt: "\"This Article Describes 2024 Approved: Revisiting Old Photos: Sending Them as Snaps on Snapchat\""
 keywords: "Snapchat Photo Sharing,Revisit Old Snaps,Snap Chat Nostalgia,Sending Past Photos,Old Photos Snap Share,Retro Photo Snaps,Nostalgic Snapchat Sends"
-thumbnail: https://www.lifewire.com/thmb/EI0iVs-CQ_N_4XI9dgynjquVbxo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/what-is-the-telegram-app-d6d91563c31c4e49a126d4b4153d098f.jpg
+thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e0810cfd55569744e9fd64a173.jpg
 ---
 
 ## Revisiting Old Photos: Sending Them as Snaps on Snapchat

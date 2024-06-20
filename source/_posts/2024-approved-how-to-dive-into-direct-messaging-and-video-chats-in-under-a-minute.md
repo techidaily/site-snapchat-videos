@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Dive Into Direct Messaging & Video Chats in Under a Minute\""
-date: 2024-05-23T10:06:07.550Z
-updated: 2024-05-24T10:06:07.550Z
+date: 2024-06-10T11:57:12.138Z
+updated: 2024-06-11T11:57:12.138Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: How to Dive Into Direct Messaging & Video Chats in Under a Minute\""
 excerpt: "\"This Article Describes 2024 Approved: How to Dive Into Direct Messaging & Video Chats in Under a Minute\""
 keywords: "Quick DM Start,Fast Chat Begin,Easy Video Call,Rapid Messaging,Instant DM Launch,Swift Conversation,Direct Engagement"
-thumbnail: https://www.lifewire.com/thmb/4isEQKIP0BBLbseoVfsufDPeK90=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/MGigsEvent-00211-2b5de5ae028e447aad969c50f63a9b5f.jpg
+thumbnail: https://thmb.techidaily.com/9b9110ec4a61375e331a8801ee2c3323c1b29e5d640a76c9d9df4c625ff11a27.jpg
 ---
 
 ## How to Dive Into Direct Messaging & Video Chats in Under a Minute

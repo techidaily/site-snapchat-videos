@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step  Drawing Faces on Snapchat\""
-date: 2024-05-23T11:51:26.538Z
-updated: 2024-05-24T11:51:26.538Z
+date: 2024-06-10T11:57:00.267Z
+updated: 2024-06-11T11:57:00.267Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Step-by-Step: Drawing Faces on Snapchat\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Step-by-Step: Drawing Faces on Snapchat\""
 keywords: "FaceDrawingSnapchat Guide,SnapchatFaceSketchTutorial,LearnFacesOnSnapchat,StepByStepSnapfaceDraw,DrawingFacesInChatApp,MasterFaceDrawingSnap,FaceArticleSnapTips"
-thumbnail: https://www.lifewire.com/thmb/Xx8MZlS4QS9KGvb8ZuSVztsqNrQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-safely-use-airport-charging-stations-4690583-01-6085c56e46b34f84b5f5d2d976e20677.jpg
+thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab52940ff719d4e3de086cc546e4e.jpg
 ---
 
 ## Step-by-Step: Drawing Faces on Snapchat

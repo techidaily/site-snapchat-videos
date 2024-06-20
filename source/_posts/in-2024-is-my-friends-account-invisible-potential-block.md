@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Is My Friend's Account Invisible? Potential Block"
-date: 2024-05-23T10:10:57.541Z
-updated: 2024-05-24T10:10:57.541Z
+date: 2024-06-10T11:57:16.414Z
+updated: 2024-06-11T11:57:16.414Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, Is My Friend's Account Invisible? Potential Block"
 excerpt: "This Article Describes In 2024, Is My Friend's Account Invisible? Potential Block"
 keywords: "Unseen Friends,Hidden Accounts,Account Visibility,Social Blocking,Invisibility Issue,Friends' Online Status,Potential Block"
-thumbnail: https://www.lifewire.com/thmb/7-p_9NYo8JG4i-R6e8BAGzrNRL8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ManworkingonMacBook-a850f8204081407191ff533c32018943.jpg
+thumbnail: https://thmb.techidaily.com/4f656e715f1d971ec63a65c3318a7fb3ef54198880a460fef17224e3b3660509.jpg
 ---
 
 ## Is My Friend's Account Invisible? Potential Block

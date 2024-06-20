@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Bring Your Imagination to Life  Using Cartoony Filters in Snapchat\""
-date: 2024-05-23T09:48:27.510Z
-updated: 2024-05-24T09:48:27.510Z
+date: 2024-06-10T11:57:02.242Z
+updated: 2024-06-11T11:57:02.242Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Bring Your Imagination to Life: Using Cartoony Filters in Snapchat\""
 excerpt: "\"This Article Describes [New] Bring Your Imagination to Life: Using Cartoony Filters in Snapchat\""
 keywords: "Snapchat Filter Magic,Cartoonify Snapselfie,Creativity in Snaps,Animated Snapshots,Whimsical Snap Effects,Imaginative Snap Art,Playful Snap Filters"
-thumbnail: https://www.lifewire.com/thmb/LQMb1e3-Mg4L1lN_8a1V_-CacMg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-155096051-5b1bf60d43a1030036cfac94.jpg
+thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec47ad22d2523d6d2404f16cd1.jpg
 ---
 
 ## Bring Your Imagination to Life: Using Cartoony Filters in Snapchat

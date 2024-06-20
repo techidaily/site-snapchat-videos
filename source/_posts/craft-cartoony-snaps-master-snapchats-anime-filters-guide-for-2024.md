@@ -1,7 +1,7 @@
 ---
 title: "\"Craft Cartoony Snaps  Master Snapchat’s Anime Filters Guide for 2024\""
-date: 2024-05-23T12:13:16.439Z
-updated: 2024-05-24T12:13:16.439Z
+date: 2024-06-10T11:57:02.270Z
+updated: 2024-06-11T11:57:02.270Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Craft Cartoony Snaps: Master Snapchat’s Anime Filters Guide for 2024\""
 excerpt: "\"This Article Describes Craft Cartoony Snaps: Master Snapchat’s Anime Filters Guide for 2024\""
 keywords: "Cartoon Snap Filtering,Anime Snap Effects,Snapchat Artistry,Anime Snap Tutorial,Creative Snaps Guide,Funny Snap Creation,Snapchat Animation Use"
-thumbnail: https://www.lifewire.com/thmb/Z6QiN3FMy7MnG8fqjEjfR75s_l8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/buffer-social-media-scheduling-3486540-74d00c122f704b87a889ee53de7a7eec.png
+thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339daebaab90b2926193e2ffe8d4.png
 ---
 
 ## Craft Cartoony Snaps: Master Snapchat’s Anime Filters Guide

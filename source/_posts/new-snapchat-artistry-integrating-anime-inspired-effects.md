@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Snapchat Artistry  Integrating Anime-Inspired Effects\""
-date: 2024-05-23T10:29:05.247Z
-updated: 2024-05-24T10:29:05.247Z
+date: 2024-06-10T11:57:07.822Z
+updated: 2024-06-11T11:57:07.822Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Snapchat Artistry: Integrating Anime-Inspired Effects\""
 excerpt: "\"This Article Describes [New] Snapchat Artistry: Integrating Anime-Inspired Effects\""
 keywords: "Snapchat Anime Aesthetic,Anime Snap Creation,Digital Anime Art,Anime Snap Filters,Snapchat Animation,Anime Design Snap,Artistic Snapchat Anime"
-thumbnail: https://www.lifewire.com/thmb/dZWU9y5hEOmMbOYLi9FnZIGOARU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/mgstickers00-449b52de59b64a058a1b5430926770c1.jpg
+thumbnail: https://thmb.techidaily.com/8774783d28d2d78a2030ac7e0dc1d6230634beecdba672087a8494366974e451.jpg
 ---
 
 ## Snapchat Artistry: Integrating Anime-Inspired Effects

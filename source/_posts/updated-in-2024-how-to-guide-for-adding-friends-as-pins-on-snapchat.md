@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, How-To Guide for Adding Friends as Pins on Snapchat\""
-date: 2024-05-23T11:18:15.586Z
-updated: 2024-05-24T11:18:15.586Z
+date: 2024-06-10T11:57:17.640Z
+updated: 2024-06-11T11:57:17.640Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, How-To Guide for Adding Friends as Pins on Snapchat\""
 excerpt: "\"This Article Describes [Updated] In 2024, How-To Guide for Adding Friends as Pins on Snapchat\""
 keywords: "Snapchat Friend Pin Addition,Pinned Friends Guide Snapchat,How To Pin Friends Snapchat,Snapchat Connect Friends Pin,Adding Friends to Snapchat Pins,Snapchat Friend Pinnable IDs,Create Friend Pins on Snapchat"
-thumbnail: https://www.lifewire.com/thmb/IbBoUsmodsqtCMucPpWy2WV4IOU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/bing-chat-249ea636b6c9418c885ecee7ef987bcb.png
+thumbnail: https://thmb.techidaily.com/9ce1efb4d78691d1fda3d25f6e0de4e7036d8fbbf749d1e5f5caf96b519e32e1.png
 ---
 
 ## How-To Guide for Adding Friends as Pins on Snapchat

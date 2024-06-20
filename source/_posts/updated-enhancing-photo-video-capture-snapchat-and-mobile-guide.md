@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing Photo-Video Capture  Snapchat & Mobile Guide\""
-date: 2024-05-23T09:59:53.485Z
-updated: 2024-05-24T09:59:53.485Z
+date: 2024-06-10T11:57:08.046Z
+updated: 2024-06-11T11:57:08.046Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Enhancing Photo-Video Capture: Snapchat & Mobile Guide\""
 excerpt: "\"This Article Describes [Updated] Enhancing Photo-Video Capture: Snapchat & Mobile Guide\""
 keywords: "Snapchat Video Tips,Mobile Photography Basics,Snapchat Stories Techniques,Mobile Video Enhancement,Capture Photos with Snapchat,Mobiles & Media Guide,Advanced Snapchat Features"
-thumbnail: https://www.lifewire.com/thmb/mK-HmnWarrLiD8ffOlJlcSgm-2U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-6870a02faf0b4509a94bb66c2b174d72.jpg
+thumbnail: https://thmb.techidaily.com/6f24909f969f84628da7cca908a8ecbcf1f1310799ac0e990b393370971b6be4.jpg
 ---
 
 ## Enhancing Photo-Video Capture: Snapchat & Mobile Guide

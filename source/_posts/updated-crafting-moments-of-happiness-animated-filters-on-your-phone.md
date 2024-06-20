@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Moments of Happiness  Animated Filters on Your Phone\""
-date: 2024-05-23T09:51:54.328Z
-updated: 2024-05-24T09:51:54.328Z
+date: 2024-06-10T11:56:59.208Z
+updated: 2024-06-11T11:56:59.208Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Crafting Moments of Happiness: Animated Filters on Your Phone\""
 excerpt: "\"This Article Describes [Updated] Crafting Moments of Happiness: Animated Filters on Your Phone\""
 keywords: "Happy Animation Photo,Joyful Filter Effects,Mobile Happiness Tools,Smile Enhancement App,Blissful Animated Screens,Moments Of Glee Filters,Emotional Phone Enhancements"
-thumbnail: https://www.lifewire.com/thmb/fISZPTsU28blhcDW4RpwajAAPvM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/SportsPeoplev3a-2e1cc0e86b164d6097cc018c9ddf9728.jpg
+thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05d2a33906086e284e9c970a7.jpg
 ---
 
 ## Crafting Moments of Happiness: Animated Filters on Your Phone

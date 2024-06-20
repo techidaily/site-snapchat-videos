@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Elevating Your Selfies  The Art of Drawing with Filters\""
-date: 2024-05-23T09:58:42.652Z
-updated: 2024-05-24T09:58:42.652Z
+date: 2024-06-10T11:57:08.270Z
+updated: 2024-06-11T11:57:08.270Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Elevating Your Selfies: The Art of Drawing with Filters\""
 excerpt: "\"This Article Describes 2024 Approved: Elevating Your Selfies: The Art of Drawing with Filters\""
 keywords: "\"Filtered Selfie Art,Elevated Self-Portraits,Photography Enhancement,Digital Self-Artistry,Artistic Selfies Boost,Visualize Yourself Better,Improve Photo Aesthetics\""
-thumbnail: https://www.lifewire.com/thmb/hM2M1LxRHZ_MoNKX2FHpkzmfRAQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/pope-francis-delivers-urbi-et-orbi-blessing-during-easter-mass-in-st-peter-s-square-485740869-57d398e53df78c5833492a26.jpg
+thumbnail: https://thmb.techidaily.com/b3b1cb7d8c5c52c25843bc952abd6a00ab0cd811cafc15697aa0c13fd607a950.jpg
 ---
 
 ## Elevating Your Selfies: The Art of Drawing with Filters

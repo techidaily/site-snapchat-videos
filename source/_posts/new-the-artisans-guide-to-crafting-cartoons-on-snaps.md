@@ -1,7 +1,7 @@
 ---
 title: "[New] The Artisan's Guide to Crafting Cartoons on Snaps"
-date: 2024-05-23T10:38:06.694Z
-updated: 2024-05-24T10:38:06.694Z
+date: 2024-06-10T11:57:13.780Z
+updated: 2024-06-11T11:57:13.780Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] The Artisan's Guide to Crafting Cartoons on Snaps"
 excerpt: "This Article Describes [New] The Artisan's Guide to Crafting Cartoons on Snaps"
 keywords: "Crafting Cartoons Snapguide,Snappy Cartoon Skills,Artistic Cartoon Tips,Snaps for Cartoons Guide,Handmade Animation Basics,Snap Cartoon Techniques,DIY Cartoon Creation Guide"
-thumbnail: https://www.lifewire.com/thmb/ynTHMRKHlmkgnPU-C-PjPaOI_vk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1345967858-4e7ba42433504ee899e05ceb500f3b68.jpg
+thumbnail: https://thmb.techidaily.com/c44b3c2a949ed90a1a74d6b8f5c0458cbf8a943f8d64ce0fc757b91844bd2888.jpg
 ---
 
 ## The Artisan's Guide to Crafting Cartoons on Snaps

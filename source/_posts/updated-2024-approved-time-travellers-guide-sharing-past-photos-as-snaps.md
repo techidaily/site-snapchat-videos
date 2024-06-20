@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Time Traveller's Guide - Sharing Past Photos as Snaps\""
-date: 2024-05-23T12:02:31.443Z
-updated: 2024-05-24T12:02:31.443Z
+date: 2024-06-10T11:57:02.762Z
+updated: 2024-06-11T11:57:02.762Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Time Traveller's Guide - Sharing Past Photos as Snaps\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Time Traveller's Guide - Sharing Past Photos as Snaps\""
 keywords: "Time Snapshots,Past Photo Sharing,Historical Images Share,Snap Memories Time,Picture Exchange Timeline,Archive Photo Transmission,Vintage Pics Network"
-thumbnail: https://www.lifewire.com/thmb/qPJTUENRkfpjv_HjgIphdxJcKus=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/fortniteparentalcontrols-a24a692130cc4142a960da30e43b013f.jpg
+thumbnail: https://thmb.techidaily.com/f52859b8cd9dd422cf0c712696f19c9a8d2ea9a54ae99a71f15e709bfd0f373c.jpg
 ---
 
 ## Time Traveller's Guide - Sharing Past Photos as Snaps

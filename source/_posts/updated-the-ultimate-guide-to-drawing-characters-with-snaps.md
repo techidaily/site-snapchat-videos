@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Guide to Drawing Characters with Snaps"
-date: 2024-05-23T10:41:54.033Z
-updated: 2024-05-24T10:41:54.033Z
+date: 2024-06-10T11:57:07.863Z
+updated: 2024-06-11T11:57:07.863Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] The Ultimate Guide to Drawing Characters with Snaps"
 excerpt: "This Article Describes [Updated] The Ultimate Guide to Drawing Characters with Snaps"
 keywords: "Character Snap Basics,Artists' Character Guide,Illustrating With Snaps,Sketching Quick Characters,Digital Character Design,Mastering Snap Drawing,Efficient Character Creation"
-thumbnail: https://www.lifewire.com/thmb/NtzklhFmb-nb7r6PWamSYhX-P4k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_the-best-teen-movies-on-netflix-october-2023-5104880-3c4ee21786b64df693bfeebd65701d8e.jpg
+thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e036ffbf26a83ecf9455ec5e.jpg
 ---
 
 ## The Ultimate Guide to Drawing Characters with Snaps
