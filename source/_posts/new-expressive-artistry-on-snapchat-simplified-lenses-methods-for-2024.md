@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Expressive Artistry on Snapchat  Simplified Lenses Methods for 2024\""
-date: 2024-05-23T11:12:47.353Z
-updated: 2024-05-24T11:12:47.353Z
+date: 2024-06-19T15:35:47.927Z
+updated: 2024-06-20T15:35:47.927Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Expressive Artistry on Snapchat: Simplified Lenses Methods for 2024\""
 excerpt: "\"This Article Describes [New] Expressive Artistry on Snapchat: Simplified Lenses Methods for 2024\""
 keywords: "Snapchat Artistic Lens,SnapArt Simplicity,Creative Lenses Snap,Expressive SnapLenses,SnapArt EasyMethods,LensCreativity Snap,Simplified ArtSnap"
-thumbnail: https://www.lifewire.com/thmb/kScnU93Em0SrmktXn5XV8zAUvao=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/DTS-Virtual-X-logo-w-illustration-xxbb-59403d7b3df78c537b1ef6b2.jpg
+thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d21887a298dcedb2ce73aa51.jpg
 ---
 
 ## Expressive Artistry on Snapchat: Simplified Lenses Methods

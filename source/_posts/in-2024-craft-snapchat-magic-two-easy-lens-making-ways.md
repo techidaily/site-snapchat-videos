@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Craft Snapchat Magic  Two Easy Lens Making Ways\""
-date: 2024-05-23T09:51:25.422Z
-updated: 2024-05-24T09:51:25.422Z
+date: 2024-06-19T15:35:58.952Z
+updated: 2024-06-20T15:35:58.952Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Craft Snapchat Magic: Two Easy Lens Making Ways\""
 excerpt: "\"This Article Describes In 2024, Craft Snapchat Magic: Two Easy Lens Making Ways\""
 keywords: "Snappy Magic Creation,Lens Maker Tips,Crafting Snaps,DIY Snap Filters,Easy Snapper Tricks,Custom Snap Effects,Quick Snap Design"
-thumbnail: https://www.lifewire.com/thmb/Yem3HIULZftUxBFec7M2Dhovrnw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/googlemeet-a87010251a134a7194b0767e843d5694.jpg
+thumbnail: https://thmb.techidaily.com/141f2083ce8f9807f7858bc78fabb4787ff1855b350de1df5ec61d6fc21bf535.jpg
 ---
 
 ## Craft Snapchat Magic: Two Easy Lens Making Ways

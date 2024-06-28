@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Leveraging Social Influence  A Guide to Biz Success on Snap\""
-date: 2024-05-23T10:12:25.005Z
-updated: 2024-05-24T10:12:25.005Z
+date: 2024-06-19T15:36:04.529Z
+updated: 2024-06-20T15:36:04.529Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Leveraging Social Influence: A Guide to Biz Success on Snap\""
 excerpt: "\"This Article Describes 2024 Approved: Leveraging Social Influence: A Guide to Biz Success on Snap\""
 keywords: "Business Snap Impact,Snap & Brand Growth,Snap Influencer Strategy,Social Media Sales Boost,Biz Success via Snap,Engaging on Snap Promo,Leveraging Snap Power"
-thumbnail: https://www.lifewire.com/thmb/HP7SX9srPeJQU8x2xjO57fAmdZ8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/christopher-gower-m_HRfLhgABo-unsplash-e9d40268c65e463f969c53ea0abf321b.jpg
+thumbnail: https://thmb.techidaily.com/d73b1ab39f29e2cca73b5589c07d89e3cba6a2b832a71241d754322497bd16d3.jpg
 ---
 
 ## Leveraging Social Influence: A Guide to Biz Success on Snap

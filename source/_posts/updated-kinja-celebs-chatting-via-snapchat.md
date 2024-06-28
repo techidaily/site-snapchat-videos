@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Kinja Celebs Chatting via Snapchat"
-date: 2024-05-23T10:11:42.797Z
-updated: 2024-05-24T10:11:42.797Z
+date: 2024-06-19T15:35:46.793Z
+updated: 2024-06-20T15:35:46.793Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Kinja Celebs Chatting via Snapchat"
 excerpt: "This Article Describes [Updated] Kinja Celebs Chatting via Snapchat"
 keywords: "Celeb SnapChat,Star SnapConvo,Kinja CelebritySnaps,Celeb SnapDiscuss,Kinja StarsSnapchat,Celebs SnapTalk,Star ChatsKinjaSnap"
-thumbnail: https://www.lifewire.com/thmb/9P6TB9sqO-6Yq23O2BOj91c-Cvg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-541365354-5c8ad42246e0fb00014a9687.jpg
+thumbnail: https://thmb.techidaily.com/bfe8f97d519484170998bced830c25ea7c96c9f9fefb2b304db02c765d66484d.jpg
 ---
 
 ## Kinja Celebs Chatting via Snapchat

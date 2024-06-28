@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Rise of Micro-Video  A TikTok vs Snapchat Study\""
-date: 2024-05-23T11:59:16.475Z
-updated: 2024-05-24T11:59:16.475Z
+date: 2024-06-19T15:35:53.257Z
+updated: 2024-06-20T15:35:53.257Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: The Rise of Micro-Video: A TikTok vs Snapchat Study\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: The Rise of Micro-Video: A TikTok vs Snapchat Study\""
 keywords: "\"Micro-Video Growth,Video Trends Study,TikTok Market Share,Snapchat Video Stats,Social Media Comparison,Short Video Analysis,Platform Video Impact\""
-thumbnail: https://www.lifewire.com/thmb/sRX8Jwr_JHkKF1BVjV4yAIkSMGM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screenshot2023-09-12at11.09.47AM-38f91827e46a496885224d0485b2ed35.png
+thumbnail: https://thmb.techidaily.com/8cc7746fe0672e4725ddd5d1492632738fafd136f8e04394f483f1432a572415.png
 ---
 
 ## The Rise of Micro-Video: A TikTok vs Snapchat Study

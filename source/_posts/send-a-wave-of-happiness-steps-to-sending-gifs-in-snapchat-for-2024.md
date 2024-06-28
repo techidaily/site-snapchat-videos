@@ -1,7 +1,7 @@
 ---
 title: "\"Send a Wave of Happiness  Steps to Sending Gifs in Snapchat for 2024\""
-date: 2024-05-23T10:27:05.965Z
-updated: 2024-05-24T10:27:05.965Z
+date: 2024-06-19T15:36:08.046Z
+updated: 2024-06-20T15:36:08.046Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Send a Wave of Happiness: Steps to Sending Gifs in Snapchat for 2024\""
 excerpt: "\"This Article Describes Send a Wave of Happiness: Steps to Sending Gifs in Snapchat for 2024\""
 keywords: "Happy Sending GIFs,Snapchat GIF Steps,Share Joy via Snapchat,Happiness with Snap GIFs,Quick GIF Sending Tips,Gifs in Snapchat Guide,Easy Snapchat GIF Sharing"
-thumbnail: https://www.lifewire.com/thmb/J824Ra8KQFbLaWC_ATGxX22EzOA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/trends_MontyRakusen_Getty-5a4aa079482c5200362b0987.jpg
+thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373d5c47d7a53f258bef450907.jpg
 ---
 
 ## Send a Wave of Happiness: Steps to Sending Gifs in Snapchat

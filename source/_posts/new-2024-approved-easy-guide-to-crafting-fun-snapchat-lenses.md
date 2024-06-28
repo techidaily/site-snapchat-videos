@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Easy Guide to Crafting Fun Snapchat Lenses\""
-date: 2024-05-23T11:05:22.236Z
-updated: 2024-05-24T11:05:22.236Z
+date: 2024-06-19T15:35:52.762Z
+updated: 2024-06-20T15:35:52.762Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Easy Guide to Crafting Fun Snapchat Lenses\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Easy Guide to Crafting Fun Snapchat Lenses\""
 keywords: "\"Fun Snaps Chat Lenses,Snapchat Creative Lenses,Easy Snapchat Lens Tips,User-Friendly Lenses Guide,Crafting Lenses Quickly,Budget-Friendly Lens Ideas,Snapchat Personalized Filters\""
-thumbnail: https://www.lifewire.com/thmb/OP6eiy3RNQBVPVmkM-aG0GXl4ws=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Lifewire_How_To_Share_Kindle_Books_1357785-35ee4b024c204263abb09fbbbe395882.png
+thumbnail: https://thmb.techidaily.com/2e153e0e621bce9ac8484d65d8c4dd2eb6f5a3b85fbf991174fd2d0ac26c3edd.png
 ---
 
 ## Easy Guide to Crafting Fun Snapchat Lenses

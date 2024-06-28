@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Lens Legends  A Deep Dive Into Snapchat's Transformative Tools\""
-date: 2024-05-23T10:12:06.536Z
-updated: 2024-05-24T10:12:06.536Z
+date: 2024-06-19T15:36:07.902Z
+updated: 2024-06-20T15:36:07.902Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Lens Legends: A Deep Dive Into Snapchat's Transformative Tools\""
 excerpt: "\"This Article Describes 2024 Approved: Lens Legends: A Deep Dive Into Snapchat's Transformative Tools\""
 keywords: "Snapchat Lens History,Snapchat AR Experience,Snapchat Visual Filters,Digital Photography Trends,Social Media Innovation,Augmented Reality Tools,Evolution of Snapchat Features"
-thumbnail: https://www.lifewire.com/thmb/bw_2STQQmnU7Z31J3BQNi6_dUWk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unpair-apple-watch-1-580e15825f9b58564c54b512.jpg
+thumbnail: https://thmb.techidaily.com/42900d3cd2ac79478a2e9a5f62d92e59b26835c360208046bfffff6e9458bb6e.jpg
 ---
 
 ## Lens Legends: A Deep Dive Into Snapchat's Transformative Tools

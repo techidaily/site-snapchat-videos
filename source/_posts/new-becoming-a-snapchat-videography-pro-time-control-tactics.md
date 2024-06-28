@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Becoming a Snapchat Videography Pro  Time Control Tactics\""
-date: 2024-05-23T09:46:12.570Z
-updated: 2024-05-24T09:46:12.570Z
+date: 2024-06-19T15:35:53.451Z
+updated: 2024-06-20T15:35:53.451Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Becoming a Snapchat Videography Pro: Time Control Tactics\""
 excerpt: "\"This Article Describes [New] Becoming a Snapchat Videography Pro: Time Control Tactics\""
 keywords: "Snapchat Video Guide,Proficient Snapchat Cams,Mastering Snaptime,Snapchat Videography Expertise,Controlled Snapchat Videos,Time Management in Snapchat,Pro Snapchat Filming Tactics"
-thumbnail: https://www.lifewire.com/thmb/EJGqNuL4vQUE0pWKInuJg5UQx10=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/KeyVisual3-5d7fc9bbaad24dd0a7d7f2468b890e34.jpg
+thumbnail: https://thmb.techidaily.com/a0065ec58e14aa7a294fd33338e90d4d15fa577ac0b3dd7d4dd7c6264c50f140.jpg
 ---
 
 ## Becoming a Snapchat Videography Pro: Time Control Tactics

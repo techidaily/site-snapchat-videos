@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick Tips  Innovative Lens Creation on Snapchat for 2024\""
-date: 2024-05-23T11:38:25.040Z
-updated: 2024-05-24T11:38:25.040Z
+date: 2024-06-19T15:36:07.048Z
+updated: 2024-06-20T15:36:07.048Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Quick Tips: Innovative Lens Creation on Snapchat for 2024\""
 excerpt: "\"This Article Describes [Updated] Quick Tips: Innovative Lens Creation on Snapchat for 2024\""
 keywords: "Snapchat Lens Ideas,Quick Snap Challenges,Creative Snap Filters,Snapchat Video Tips,Innovative Snap Moments,Snap Editing Techniques,Snapchat Creativity Guide"
-thumbnail: https://www.lifewire.com/thmb/GupZEfDiNv-UEGiKSNxbTg6huFs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1052001754-41c546b5ed4446ebac2da44fbbe609e5.jpg
+thumbnail: https://thmb.techidaily.com/527ec40dbef906cadfd5828e1a10f887ec75fd463af4e51940397e62459c5f66.jpg
 ---
 
 ## Quick Tips: Innovative Lens Creation on Snapchat
