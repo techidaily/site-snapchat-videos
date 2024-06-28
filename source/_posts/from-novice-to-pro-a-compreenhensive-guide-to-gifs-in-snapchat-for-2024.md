@@ -1,7 +1,7 @@
 ---
 title: "\"From Novice to Pro  A Compreenhensive Guide to Gifs in Snapchat for 2024\""
-date: 2024-05-23T10:03:59.764Z
-updated: 2024-05-24T10:03:59.764Z
+date: 2024-06-27T16:03:50.257Z
+updated: 2024-06-28T16:03:50.257Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes From Novice to Pro: A Compreenhensive Guide to Gifs in Snapchat for 2024\""
 excerpt: "\"This Article Describes From Novice to Pro: A Compreenhensive Guide to Gifs in Snapchat for 2024\""
 keywords: "Snapchat Gif Tips,GIFs in Social Media,Learning Snapchat Gifs,Pro Gifs for Snapchat,Mastering Snapchat Animation,Advanced Snapchat Graphics,Beginner's Guide to Snapchat Emojis"
-thumbnail: https://www.lifewire.com/thmb/5HDHhmAU3Eyy1gIkDYFy4z3JLbQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/alternate-route-plan-google-maps-1616470-90734d793e9743d596ade9b27be0b34b.png
+thumbnail: https://thmb.techidaily.com/c2522eefb8fbc96fa570f56849cfdf92d72e221bd3a27b7e0b7d3fec1332bd02.png
 ---
 
 ## From Novice to Pro: A Compreenhensive Guide to Gifs in Snapchat

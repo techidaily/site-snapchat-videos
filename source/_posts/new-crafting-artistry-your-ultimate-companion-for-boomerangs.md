@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Artistry  Your Ultimate Companion for Boomerangs\""
-date: 2024-05-23T09:51:35.709Z
-updated: 2024-05-24T09:51:35.709Z
+date: 2024-06-27T16:03:48.727Z
+updated: 2024-06-28T16:03:48.727Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Crafting Artistry: Your Ultimate Companion for Boomerangs\""
 excerpt: "\"This Article Describes [New] Crafting Artistry: Your Ultimate Companion for Boomerangs\""
 keywords: "Boomerang Basics,Boomerang Crafting,Boomerang Designs,Boomerang Techniques,Artistry in Boomeranging,Masterful Boomerangs,Boomerang Creation Guide"
-thumbnail: https://www.lifewire.com/thmb/_W_2GMIy3lGZP4QHVrzrXYOxdI4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/more-than-one-youtube-channel-1616988-2455f529faf74ee4aa7981d556c6a908.png
+thumbnail: https://thmb.techidaily.com/d168a05f3f195d26d6b5e0381b43203121c261c3de6a774edbf948a46452563c.png
 ---
 
 ## Crafting Artistry: Your Ultimate Companion for Boomerangs

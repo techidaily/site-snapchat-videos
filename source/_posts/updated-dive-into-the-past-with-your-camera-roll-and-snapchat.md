@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Dive Into the Past with Your Camera Roll and Snapchat"
-date: 2024-05-23T09:54:50.458Z
-updated: 2024-05-24T09:54:50.458Z
+date: 2024-06-27T16:03:52.168Z
+updated: 2024-06-28T16:03:52.168Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Dive Into the Past with Your Camera Roll and Snapchat"
 excerpt: "This Article Describes [Updated] Dive Into the Past with Your Camera Roll and Snapchat"
 keywords: "Snapchat Nostalgia,Photo Snapshots,Retro Snapshots,Memories Unlock,Snappy Nostalgia,Flashback Snap,Time Travel Snap"
-thumbnail: https://www.lifewire.com/thmb/RbZUfuz3r4f5IlxExTAqggEIT6o=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Naza-Shelley-1-c9592bcfe3bd4773bc1ca32865328fa9.png
+thumbnail: https://thmb.techidaily.com/4d92bee2eba99f34da43a3826fc4e46ce3e4a6c22b117140d007c698449c206f.png
 ---
 
 ## Dive Into the Past with Your Camera Roll and Snapchat

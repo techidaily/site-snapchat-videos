@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Analyzing Lack of Interaction  Is It a Block?\""
-date: 2024-05-23T09:44:53.573Z
-updated: 2024-05-24T09:44:53.573Z
+date: 2024-06-27T16:03:53.011Z
+updated: 2024-06-28T16:03:53.011Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Analyzing Lack of Interaction: Is It a Block?\""
 excerpt: "\"This Article Describes [Updated] Analyzing Lack of Interaction: Is It a Block?\""
 keywords: "Social Media Disconnect,Engagement Barrier,Interaction Gap,Connection Halt,Online Disengagement,User Inactivity,Interaction Block"
-thumbnail: https://www.lifewire.com/thmb/qkonwdyTr_bhH6rllvfkAkzchdo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_how-to-fix-it-when-roku-tv-wont-turn-on-5194012-47a21096d48e45f4bdc94717a679da09.jpg
+thumbnail: https://thmb.techidaily.com/622d9fe73f7f1e73d5569e41ea521313a670d1c14e23661bf478ad1eace74e43.jpg
 ---
 
 ## Analyzing Lack of Interaction: Is It a Block?

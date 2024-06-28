@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Innovating Quickly  2 Approaches to Making Snapchat Filters\""
-date: 2024-05-23T10:08:46.783Z
-updated: 2024-05-24T10:08:46.783Z
+date: 2024-06-27T16:03:41.557Z
+updated: 2024-06-28T16:03:41.557Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Innovating Quickly: 2 Approaches to Making Snapchat Filters\""
 excerpt: "\"This Article Describes [New] Innovating Quickly: 2 Approaches to Making Snapchat Filters\""
 keywords: "Snapchat Filter Tech,Snappy Innovations,Rapid Filter Design,Creative Snapchat Tactics,Quick Snap Trends,Advancing Filters Ease,Speed in Snap Update"
-thumbnail: https://www.lifewire.com/thmb/BEu1dTImTgj-gj19IMN4njOxWDE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/set-top-dvr-1130767-f2aa7f11e3d2442b966d53b8aa2d25fd.png
+thumbnail: https://thmb.techidaily.com/70a221261e83ff3179ef93192d51afbff1f7257579ffa960f9e7a085032e4b04.png
 ---
 
 ## Innovating Quickly: 2 Approaches to Making Snapchat Filters
