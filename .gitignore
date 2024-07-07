@@ -1,0 +1,11 @@
+.DS_Store
+Thumbs.db
+db.json
+*.log
+node_modules/
+public/
+docs/
+.deploy*/
+_multiconfig.yml
+.last-publish-date
+.url2title-map.json
