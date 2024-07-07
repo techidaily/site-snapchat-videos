@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Simplified Steps for Snapchat Lens Design\""
-date: 2024-05-23T10:27:53.887Z
-updated: 2024-05-24T10:27:53.887Z
+date: 2024-07-06T21:35:50.518Z
+updated: 2024-07-07T21:35:50.518Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Simplified Steps for Snapchat Lens Design\""
 excerpt: "\"This Article Describes 2024 Approved: Simplified Steps for Snapchat Lens Design\""
 keywords: "Snappable Lens Creation,Easy Snapchat Effects,Simplified Lens Making,Quick Snap Filters,Design Snap Lenses,Effortless Lens Design,Streamlined Filter Crafting"
-thumbnail: https://www.lifewire.com/thmb/88mChmQ2VYUJlsDQVujAG8K38XA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ps4-2326616_1280-09912014986f461fbafdce07c1e9fad1.jpg
+thumbnail: https://thmb.techidaily.com/9b6181d7d07722f8a9a54201f128a4424f9e657e4070376880c0b424223e6faa.jpg
 ---
 
 ## Simplified Steps for Snapchat Lens Design

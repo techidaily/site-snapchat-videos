@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Stand Out on Social Media  Discover a Hundred+ Creative Frameworks for Your Snap Stories\""
-date: 2024-05-23T11:51:00.629Z
-updated: 2024-05-24T11:51:00.629Z
+date: 2024-07-06T21:35:49.297Z
+updated: 2024-07-07T21:35:49.297Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Stand Out on Social Media: Discover a Hundred+ Creative Frameworks for Your Snap Stories\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Stand Out on Social Media: Discover a Hundred+ Creative Frameworks for Your Snap Stories\""
 keywords: "Social Media Creativity,Snap Story Designs,Engaging Social Content,Innovative Social Media,Creative Frameworks Snap,Unique Social Stories,Dynamic Social Strategies"
-thumbnail: https://www.lifewire.com/thmb/JIMkk9-NRTH24rzU4ZyoWplPQU0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/160019707-56a289593df78cf7727747e3-b542ce0cf6404a17a1fd40e42602dac6.jpg
+thumbnail: https://thmb.techidaily.com/402a192fa8f9a76c25001597879db6a11d907dc8fe3db6a194aec02ff3403057.jpg
 ---
 
 ## Stand Out on Social Media: Discover a Hundred+ Creative Frameworks for Your Snap Stories

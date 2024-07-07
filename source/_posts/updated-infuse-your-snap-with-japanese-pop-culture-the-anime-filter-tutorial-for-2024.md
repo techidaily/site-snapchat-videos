@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Infuse Your Snap with Japanese Pop Culture  The Anime Filter Tutorial for 2024\""
-date: 2024-05-23T11:20:41.862Z
-updated: 2024-05-24T11:20:41.862Z
+date: 2024-07-06T21:35:50.713Z
+updated: 2024-07-07T21:35:50.713Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Infuse Your Snap with Japanese Pop Culture: The Anime Filter Tutorial for 2024\""
 excerpt: "\"This Article Describes [Updated] Infuse Your Snap with Japanese Pop Culture: The Anime Filter Tutorial for 2024\""
 keywords: "Anime FX Snap Guide,Pop Artisan Snaps,Japan Snaps Trend,Anime Lens Effects,Japanese Culture Images,Manga Snaps Techniques,Cosplay Animation Snap"
-thumbnail: https://www.lifewire.com/thmb/3PEhxVyab4iTIAnHW7YL8s2o-8w=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/antenna--474339062-34a52a78996642998597f8c8e6fdbb3f.jpg
+thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b14d88b85b8e477a0430e0fc.jpg
 ---
 
 ## Infuse Your Snap with Japanese Pop Culture: The Anime Filter Tutorial

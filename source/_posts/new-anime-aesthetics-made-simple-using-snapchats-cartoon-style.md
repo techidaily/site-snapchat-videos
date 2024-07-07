@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Anime Aesthetics, Made Simple  Using Snapchat's Cartoon Style\""
-date: 2024-05-23T09:45:10.014Z
-updated: 2024-05-24T09:45:10.014Z
+date: 2024-07-06T21:35:54.146Z
+updated: 2024-07-07T21:35:54.146Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Anime Aesthetics, Made Simple: Using Snapchat's Cartoon Style\""
 excerpt: "\"This Article Describes [New] Anime Aesthetics, Made Simple: Using Snapchat's Cartoon Style\""
 keywords: "Anime Aesthetic,Snapchat Cartoon,Simplified Anime Art,Cartoon Anime Style,Snapchat Simple Animation,Easy Anime Design,Minimalist Anime Look"
-thumbnail: https://www.lifewire.com/thmb/erzKASgx244zh90-Q9CR1bmJcrQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/anthem-speaker-set-menu-examples-aaa-58f8bed43df78ca159779250.jpg
+thumbnail: https://thmb.techidaily.com/d1af8070250ed0fc44c0eb3bb732f040d9be0391dec23043dea2f82d9170e773.jpg
 ---
 
 ## Anime Aesthetics, Made Simple: Using Snapchat's Cartoon Style

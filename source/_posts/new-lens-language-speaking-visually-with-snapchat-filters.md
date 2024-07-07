@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Lens Language  Speaking Visually with Snapchat Filters\""
-date: 2024-05-23T10:12:04.481Z
-updated: 2024-05-24T10:12:04.481Z
+date: 2024-07-06T21:35:41.780Z
+updated: 2024-07-07T21:35:41.780Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Lens Language: Speaking Visually with Snapchat Filters\""
 excerpt: "\"This Article Describes [New] Lens Language: Speaking Visually with Snapchat Filters\""
 keywords: "\"Visual Communication,Snapchat Filters Impact,Image Linguistics,Digital Expression Art,Snappy Language Trends,Filtered Visuals Concept,Emoji-Like Expressions\""
-thumbnail: https://www.lifewire.com/thmb/SPyegmDXMFzk4L3Y3-2c5z4H3WI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/samsungtvhomepage-58f0d708245a4140bb4bbad8ea0cfc26.jpg
+thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05c97d832955a545581c7804d.jpg
 ---
 
 ## Lens Language: Speaking Visually with Snapchat Filters
