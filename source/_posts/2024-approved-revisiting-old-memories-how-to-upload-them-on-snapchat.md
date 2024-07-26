@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Revisiting Old Memories  How to Upload Them on Snapchat\""
-date: 2024-05-23T10:25:01.835Z
-updated: 2024-05-24T10:25:01.835Z
+date: 2024-07-25T11:30:52.038Z
+updated: 2024-07-26T11:30:52.038Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Revisiting Old Memories: How to Upload Them on Snapchat\""
 excerpt: "\"This Article Describes 2024 Approved: Revisiting Old Memories: How to Upload Them on Snapchat\""
 keywords: "Snapchat Memory Sharing,Upload Past Moments,Snapchat Revisit Feature,Share Old Snaps,Snap Memories Display,Update Snap Story,Historical Snapchat Posts"
-thumbnail: https://www.lifewire.com/thmb/uNBWBp9bqIxL1S2DeSuE8_AGLAs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Tweet-Deck-Dashboard-56b34fa45f9b58def9c97d2d-356472198df246289bb2a97d7040aa0d.jpg
+thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad36698509cc3575ae5a17b1c.jpg
 ---
 
 ## Revisiting Old Memories: How to Upload Them on Snapchat
@@ -35,6 +35,9 @@ This article will explain how to send a picture from your memories or camera rol
 
 Are you tired of sending your live selfies as snaps to your friends? In this section, you can learn **how to send snaps from the camera roll** without capturing a live snap. For this, we will explain some manual methods as well as some reliable apps in a detailed manner.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 1: Using a Snapchat Filter
 
 Snapchat allows you to apply its filters on any of your camera roll's pictures. By selecting a particular photo or video from your memories or snap, you can instantly add a filter to them. Afterward, you can send the filtered image to your friends as a regular snap. However, this solution has a significant drawback that you must know. The limitation is that the receiver of the snap would be able to see that the sent picture is from the camera roll.
@@ -51,6 +54,9 @@ Step1 Once you have applied the filter to the photo, touch on the "Send To" butt
 
 ![tap on send to button](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 2: Using a Sticker
 
 If you want to make your camera roll picture funny and entertaining, you can add stickers to it. Through Snapchat, you can make your customized sticker of any interesting face or object. Moreover, Snapchat also offers a huge variety of built-in stickers. If you don't want to create a customized sticker, you can easily add the built-in sticker with a single tap.
@@ -69,6 +75,9 @@ Step3 Now close the picture opened for creating the sticker. Once done, take a s
 
 Step4 Once done with adding and adjusting the sticker, hit the "Send To" button. Choose your preferred contact and tap on the "Send" icon again.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![hit the send to button](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-7.jpg)
 
 ### Method 3: Using the LMK App
@@ -83,6 +92,9 @@ Step1 Open your Snapchat either from your Android or iOS device. Proceed to the 
 
 Step2 Now hit the "Arrow" button to share the selected snap. From the displayed options, tap on the "Download" icon to save the picture on your device gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![download the selected photo](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-9.jpg)
 
 Step3 Now head to your Play Store or App Store according to the OS of your mobile device. From there, download the LMK app. After its complete installation, open this app using your Snapchat login.
@@ -95,6 +107,9 @@ Step4 On the LMK app, tap on the "Plus" icon to proceed. Afterward, tap on "Post
 
 Step5 After choosing the photo from the gallery, tap "Post to Snapchat." By doing so, you will be redirected to your Snapchat. From your image, remove the added stickers of the LMK app. You can drag the sticker to the trash bin icon. Afterward, tap on the "Paper Clip" icon to remove the added attachment.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ![remove the sticker and link](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-12.jpg)
 
 Step6 Once done with removing the sticker and attached link, hit the "Send" button. Now choose a Snapchat contact and hit the "Send" button.
@@ -107,6 +122,9 @@ Casper is an excellent alternative for Snapchat users. Using this app, you can i
 
 Step1 Open Settings from your phone and tap "Apps." Afterward, select "Manage Apps" to proceed.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![open manage apps settings](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-14.jpg)
 
 Step2 Once done, locate the "Google Chrome" option and turn on the toggle of "Install from unknown sources."
@@ -121,6 +139,9 @@ Step2 Hit the "Plus" icon and tap on "Choose from Gallery." After selecting a pi
 
 Step3 Choose your preferred contact to whom you want to send the picture. For confirmation, tap on the "Send" button again.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Many youngsters are addicted to Snapchat to provide daily updates to their friends. You can utilize the offered filters, lenses, and stickers on Snapchat to make your snaps vibrant. However, this article has guided you on **how to send snaps from the camera roll** as a regular snap. You can send everyday snaps to your friends without mentioning the camera roll picture. For this, you can rely upon our recommended solutions and applications.
@@ -129,6 +150,9 @@ Many youngsters are addicted to Snapchat to provide daily updates to their frien
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -139,28 +163,47 @@ Many youngsters are addicted to Snapchat to provide daily updates to their frien
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 ## How to Send a Snap from Memories/Camera Roll as a Snap
 
 Are you tired of sending your live selfies as snaps to your friends? In this section, you can learn **how to send snaps from the camera roll** without capturing a live snap. For this, we will explain some manual methods as well as some reliable apps in a detailed manner.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### Method 1: Using a Snapchat Filter
 
 Snapchat allows you to apply its filters on any of your camera roll's pictures. By selecting a particular photo or video from your memories or snap, you can instantly add a filter to them. Afterward, you can send the filtered image to your friends as a regular snap. However, this solution has a significant drawback that you must know. The limitation is that the receiver of the snap would be able to see that the sent picture is from the camera roll.
 
 Step1 Open your Snapchat and swipe up to open the 'Memories'. Go to your Camera Roll and select any particular picture from there.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![access camera roll tab](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-1.jpg)
 
 Step2 After choosing a particular photo, tap on the "**Edit**" icon at the bottom left corner. You can apply filters to the photo by swiping from right to left. Keep swiping until you can find your preferred filter.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![tap on edit option](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-2.jpg)
 
 Step1 Once you have applied the filter to the photo, touch on the "Send To" button. Choose any Snapchat friend to whom you want to send the picture. Next, hit the "Send" icon again to send the photo successfully.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![tap on send to button](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-3.jpg)
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ### Method 2: Using a Sticker
 
 If you want to make your camera roll picture funny and entertaining, you can add stickers to it. Through Snapchat, you can make your customized sticker of any interesting face or object. Moreover, Snapchat also offers a huge variety of built-in stickers. If you don't want to create a customized sticker, you can easily add the built-in sticker with a single tap.
@@ -201,16 +244,25 @@ Step3 Now head to your Play Store or App Store according to the OS of your mobil
 
 Step4 On the LMK app, tap on the "Plus" icon to proceed. Afterward, tap on "Post" and hit the "Camera" icon from the bottom left side. Now choose the photo that you have recently saved in your gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![tap on camera icon](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-11.jpg)
 
 Step5 After choosing the photo from the gallery, tap "Post to Snapchat." By doing so, you will be redirected to your Snapchat. From your image, remove the added stickers of the LMK app. You can drag the sticker to the trash bin icon. Afterward, tap on the "Paper Clip" icon to remove the added attachment.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![remove the sticker and link](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-12.jpg)
 
 Step6 Once done with removing the sticker and attached link, hit the "Send" button. Now choose a Snapchat contact and hit the "Send" button.
 
 ![send snap using lmk app](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 4: Casper APK for Android
 
 Casper is an excellent alternative for Snapchat users. Using this app, you can instantly add stickers and filters to the captured snaps. You can also save and forward snaps using this app to other platforms. However, Casper is not available on the Play Store. You can download the [Casper APK](https://www.apkmirror.com/apk/casper-io/casper/) from your web browser easily. Before installing it, you should alter some settings from your phone, as described below:
@@ -284,6 +336,134 @@ Many youngsters are addicted to Snapchat to provide daily updates to their frien
 
 1. First of all, launch the Snapchat app on your mobile phone and leave it open. Go to your phone’s ‘Settings’ (Android/iPhone) and toggle on the ‘Airplane/Flight’ mode. Airplane/Flight mode disables all the wireless connections, be it network signals or internet related services for your device (Wi-Fi as well as cellular).
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![snapchat save without knowing](https://images.wondershare.com/filmora/article-images/snapchat-save-without-knowing.JPG)
+
+2. Browse the Snapchat inbox and view the desired Snap that you wish to save, and quickly take a screenshot. Make sure to be quick enough and do it before the Snap expires.
+3. Now, logout from your Snapchat account right after taking the screenshot. You need to follow the logout process according to your device specific settings. Being in ‘Airplane/Flight’ mode you can’t logout, but click the logout option anyway (this is vital!).
+
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![snapchat log out](https://images.wondershare.com/filmora/article-images/snapchat-log-out.JPG)
+
+4. Here, you need to close the Snapchat app on your mobile phone by swiping out the Snapchat app (up/sideways depending on Android/iPhone) from your device’s force quit screen.
+5. Toggle off the ‘Airplane/Flight’ mode and wait until your phone connects to the Wi-Fi or mobile network. Now, launch the Snapchat app again and login with the same credentials. The Snaps you have taken screenshots of will still appear as unopened on the storyboard and your friend will have no clue about the Snap being screenshot.
+
+ **Read More to Get :** [How to Screenshot on Snapchat without Them Knowing >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: How to save Snapchat videos on Mac
+
+ After learning to take screenshots of Snaps using the ‘Airplane’ mode, how about saving Snapchat videos on your Mac computer? Yes, you can easily save Snapchat videos using your iPhone and Mac computer. The process involves recording your iPhone’s screen through your Mac as a movie and then saving it. Here is how to do it
+
+1. Take and connect your iPhone and Mac computer using a lightning cable. Make sure that they are pre-synced. Now, launch QuickTime Player on your computer and then tap ‘File’ in the finder menu, then ‘New Movie Recording’.
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![snapchat quicktime](https://images.wondershare.com/filmora/article-images/snapchat-quiktime.JPG)
+
+2. This will make your Mac’s camera act as the primary camera/recording device. To turn the iPhone as the recording device, go to the QuickTime screen and tap the ‘downward arrow’ button adjacent to the record button. The iPhone will be available under both the Camera and Microphone section, choose it for both the options.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+![snapchat record](https://images.wondershare.com/filmora/article-images/snapchat-record.JPG)
+
+3. You’ll now notice that your iPhone’s screen has been mirrored with your Mac computer.
+4. Now, on your iPhone, go to Snapchat and browse the inbox. Subsequently, on your Mac, tap the ‘Record’ button and then start viewing the snaps on your iPhone. QuickTime will record everything from the snaps and save it on your computer.
+5. After you’re done with recording, tap the ‘Record’ button again to stop it. Lastly, go to ‘File’ and click ‘Save’, the file format to which the file will be saved is .mov which is generally supported by majority of movie players.
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
+## Part 3: How to save Snapchat videos on Android
+
+ In case you are looking for a way to save Snapchat videos, take screenshots of chats, make slideshows of stories, or record other’s stories on your Android device itself, then AZ Screen recorder is one such app to save those Snapchats. It doesn’t require any root access to your Android phone, so is preferred by most users.
+
+ Step-by-step Tutorial
+
+1. Download the Apk file, install, and launch the AZ Screen Recorder Snapchat App. Set up the account in your Android phone with required information.
+2. Tap the ‘Record’ button in AZ Screen Recorder and then open Snapchat inbox. Browse through the content you want to record, the app will record everything on the go.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![snapchat az screen recorder](https://images.wondershare.com/filmora/article-images/snapchat-az-screen-recorder.JPG)
+
+3. Stop the recording by tapping the ‘Record’ button again.
+
+ Note: When saving Snapchat videos via this method, Snapchat is unable to trace that the video or stories are being recorded. Thereby, you save the Snapchat stories without even notifying the uploader.
+
+## Part 4: How to save Snapchat videos to your Phone
+
+ If you are wondering about saving your own Snapchat videos to your phone, then you are at the right place for a solution. It’s pretty simple, just like saving a photo.
+
+ Here is how
+
+1. Launch Snapchat in your mobile phone and then press and hold the camera button to record a video.
+2. Once you are done, lift your finger from the camera and tap the ‘Save’ button from the bottom left corner of the screen.
+3. You will see the ‘Saved to memories’ message. Now, browse your Snapchat folder to locate the video.
+
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![snapchat save memory](https://images.wondershare.com/filmora/article-images/snapchat-save-memory.JPG)
+
+4. If you forgot to save it before posting as a story, then go to the ‘Stories’ tab and click on the three vertical dots next to ‘My Story’ and select the video. Click the ‘Save’ button next to it to save Snapchat videos to your mobile.
+
+## Conclusion
+
+ It is not impossible to save Snapchat videos to your Mac or Android phone. In fact, you just need to learn the right way that suits you. Be it through the apps to save Snapchat videos and stories or taking screenshots in ‘Airplane’ mode, you got to be quick and save what you like.
+
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ The popular social networking app Snapchat comes with some ephemeral features. This self-deleting feature deters users from **saving Snapchat videos** of their friends. Snapchat photos, videos, and stories of contacts vanish from storyboard right after you view them.
+
+ So, what will you do to save photos or videos from your friends’ Snapchat or Snap Stories long before they are gone? You can take a screenshot, save in flight mode, use your computer, or an app to capture the videos and images.
+
+ Through this article, we are going to tell you, how to save Snapchats to your phone to make you watch them later.
+
+* [**Part1: How to Save Snapchats without them knowing**](#part1)
+* [**Part2: How to save Snapchat videos on Mac**](#part2)
+* [**Part3: How to save Snapchat videos on Android**](#part3)
+* [**Part4: How to save Snapchat videos to your Phone**](#part4)
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: How to Save Snapchats without them knowing
+
+ You want to save a friend’s Snaps, but Snapchat immediately alerts them of the screen shot taken. Hence, it is not possible to save other’s pictures or videos in Snapchat in incognito mode. You don’t need apps to save Snapchat to your phone. There is hardly a feasible way to do so without the senders’ knowledge. In such a situation, you can try out the following option – saving Snaps in flight mode.
+
+ Here are the steps
+
+1. First of all, launch the Snapchat app on your mobile phone and leave it open. Go to your phone’s ‘Settings’ (Android/iPhone) and toggle on the ‘Airplane/Flight’ mode. Airplane/Flight mode disables all the wireless connections, be it network signals or internet related services for your device (Wi-Fi as well as cellular).
+
 ![snapchat save without knowing](https://images.wondershare.com/filmora/article-images/snapchat-save-without-knowing.JPG)
 
 2. Browse the Snapchat inbox and view the desired Snap that you wish to save, and quickly take a screenshot. Make sure to be quick enough and do it before the Snap expires.
@@ -321,6 +501,9 @@ Many youngsters are addicted to Snapchat to provide daily updates to their frien
 1. Download the Apk file, install, and launch the AZ Screen Recorder Snapchat App. Set up the account in your Android phone with required information.
 2. Tap the ‘Record’ button in AZ Screen Recorder and then open Snapchat inbox. Browse through the content you want to record, the app will record everything on the go.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![snapchat az screen recorder](https://images.wondershare.com/filmora/article-images/snapchat-az-screen-recorder.JPG)
 
 3. Stop the recording by tapping the ‘Record’ button again.
@@ -341,10 +524,140 @@ Many youngsters are addicted to Snapchat to provide daily updates to their frien
 
 4. If you forgot to save it before posting as a story, then go to the ‘Stories’ tab and click on the three vertical dots next to ‘My Story’ and select the video. Click the ‘Save’ button next to it to save Snapchat videos to your mobile.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
  It is not impossible to save Snapchat videos to your Mac or Android phone. In fact, you just need to learn the right way that suits you. Be it through the apps to save Snapchat videos and stories or taking screenshots in ‘Airplane’ mode, you got to be quick and save what you like.
 
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ The popular social networking app Snapchat comes with some ephemeral features. This self-deleting feature deters users from **saving Snapchat videos** of their friends. Snapchat photos, videos, and stories of contacts vanish from storyboard right after you view them.
+
+ So, what will you do to save photos or videos from your friends’ Snapchat or Snap Stories long before they are gone? You can take a screenshot, save in flight mode, use your computer, or an app to capture the videos and images.
+
+ Through this article, we are going to tell you, how to save Snapchats to your phone to make you watch them later.
+
+* [**Part1: How to Save Snapchats without them knowing**](#part1)
+* [**Part2: How to save Snapchat videos on Mac**](#part2)
+* [**Part3: How to save Snapchat videos on Android**](#part3)
+* [**Part4: How to save Snapchat videos to your Phone**](#part4)
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Part 1: How to Save Snapchats without them knowing
+
+ You want to save a friend’s Snaps, but Snapchat immediately alerts them of the screen shot taken. Hence, it is not possible to save other’s pictures or videos in Snapchat in incognito mode. You don’t need apps to save Snapchat to your phone. There is hardly a feasible way to do so without the senders’ knowledge. In such a situation, you can try out the following option – saving Snaps in flight mode.
+
+ Here are the steps
+
+1. First of all, launch the Snapchat app on your mobile phone and leave it open. Go to your phone’s ‘Settings’ (Android/iPhone) and toggle on the ‘Airplane/Flight’ mode. Airplane/Flight mode disables all the wireless connections, be it network signals or internet related services for your device (Wi-Fi as well as cellular).
+
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![snapchat save without knowing](https://images.wondershare.com/filmora/article-images/snapchat-save-without-knowing.JPG)
+
+2. Browse the Snapchat inbox and view the desired Snap that you wish to save, and quickly take a screenshot. Make sure to be quick enough and do it before the Snap expires.
+3. Now, logout from your Snapchat account right after taking the screenshot. You need to follow the logout process according to your device specific settings. Being in ‘Airplane/Flight’ mode you can’t logout, but click the logout option anyway (this is vital!).
+
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![snapchat log out](https://images.wondershare.com/filmora/article-images/snapchat-log-out.JPG)
+
+4. Here, you need to close the Snapchat app on your mobile phone by swiping out the Snapchat app (up/sideways depending on Android/iPhone) from your device’s force quit screen.
+5. Toggle off the ‘Airplane/Flight’ mode and wait until your phone connects to the Wi-Fi or mobile network. Now, launch the Snapchat app again and login with the same credentials. The Snaps you have taken screenshots of will still appear as unopened on the storyboard and your friend will have no clue about the Snap being screenshot.
+
+ **Read More to Get :** [How to Screenshot on Snapchat without Them Knowing >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: How to save Snapchat videos on Mac
+
+ After learning to take screenshots of Snaps using the ‘Airplane’ mode, how about saving Snapchat videos on your Mac computer? Yes, you can easily save Snapchat videos using your iPhone and Mac computer. The process involves recording your iPhone’s screen through your Mac as a movie and then saving it. Here is how to do it
+
+1. Take and connect your iPhone and Mac computer using a lightning cable. Make sure that they are pre-synced. Now, launch QuickTime Player on your computer and then tap ‘File’ in the finder menu, then ‘New Movie Recording’.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
+![snapchat quicktime](https://images.wondershare.com/filmora/article-images/snapchat-quiktime.JPG)
+
+2. This will make your Mac’s camera act as the primary camera/recording device. To turn the iPhone as the recording device, go to the QuickTime screen and tap the ‘downward arrow’ button adjacent to the record button. The iPhone will be available under both the Camera and Microphone section, choose it for both the options.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
+![snapchat record](https://images.wondershare.com/filmora/article-images/snapchat-record.JPG)
+
+3. You’ll now notice that your iPhone’s screen has been mirrored with your Mac computer.
+4. Now, on your iPhone, go to Snapchat and browse the inbox. Subsequently, on your Mac, tap the ‘Record’ button and then start viewing the snaps on your iPhone. QuickTime will record everything from the snaps and save it on your computer.
+5. After you’re done with recording, tap the ‘Record’ button again to stop it. Lastly, go to ‘File’ and click ‘Save’, the file format to which the file will be saved is .mov which is generally supported by majority of movie players.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: How to save Snapchat videos on Android
+
+ In case you are looking for a way to save Snapchat videos, take screenshots of chats, make slideshows of stories, or record other’s stories on your Android device itself, then AZ Screen recorder is one such app to save those Snapchats. It doesn’t require any root access to your Android phone, so is preferred by most users.
+
+ Step-by-step Tutorial
+
+1. Download the Apk file, install, and launch the AZ Screen Recorder Snapchat App. Set up the account in your Android phone with required information.
+2. Tap the ‘Record’ button in AZ Screen Recorder and then open Snapchat inbox. Browse through the content you want to record, the app will record everything on the go.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![snapchat az screen recorder](https://images.wondershare.com/filmora/article-images/snapchat-az-screen-recorder.JPG)
+
+3. Stop the recording by tapping the ‘Record’ button again.
+
+ Note: When saving Snapchat videos via this method, Snapchat is unable to trace that the video or stories are being recorded. Thereby, you save the Snapchat stories without even notifying the uploader.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 4: How to save Snapchat videos to your Phone
+
+ If you are wondering about saving your own Snapchat videos to your phone, then you are at the right place for a solution. It’s pretty simple, just like saving a photo.
+
+ Here is how
+
+1. Launch Snapchat in your mobile phone and then press and hold the camera button to record a video.
+2. Once you are done, lift your finger from the camera and tap the ‘Save’ button from the bottom left corner of the screen.
+3. You will see the ‘Saved to memories’ message. Now, browse your Snapchat folder to locate the video.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
+![snapchat save memory](https://images.wondershare.com/filmora/article-images/snapchat-save-memory.JPG)
+
+4. If you forgot to save it before posting as a story, then go to the ‘Stories’ tab and click on the three vertical dots next to ‘My Story’ and select the video. Click the ‘Save’ button next to it to save Snapchat videos to your mobile.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+ It is not impossible to save Snapchat videos to your Mac or Android phone. In fact, you just need to learn the right way that suits you. Be it through the apps to save Snapchat videos and stories or taking screenshots in ‘Airplane’ mode, you got to be quick and save what you like.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -394,10 +707,18 @@ Follow @Ollie Mattison
 
 1. Take and connect your iPhone and Mac computer using a lightning cable. Make sure that they are pre-synced. Now, launch QuickTime Player on your computer and then tap ‘File’ in the finder menu, then ‘New Movie Recording’.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![snapchat quicktime](https://images.wondershare.com/filmora/article-images/snapchat-quiktime.JPG)
 
 2. This will make your Mac’s camera act as the primary camera/recording device. To turn the iPhone as the recording device, go to the QuickTime screen and tap the ‘downward arrow’ button adjacent to the record button. The iPhone will be available under both the Camera and Microphone section, choose it for both the options.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![snapchat record](https://images.wondershare.com/filmora/article-images/snapchat-record.JPG)
 
 3. You’ll now notice that your iPhone’s screen has been mirrored with your Mac computer.
@@ -413,6 +734,9 @@ Follow @Ollie Mattison
 1. Download the Apk file, install, and launch the AZ Screen Recorder Snapchat App. Set up the account in your Android phone with required information.
 2. Tap the ‘Record’ button in AZ Screen Recorder and then open Snapchat inbox. Browse through the content you want to record, the app will record everything on the go.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ![snapchat az screen recorder](https://images.wondershare.com/filmora/article-images/snapchat-az-screen-recorder.JPG)
 
 3. Stop the recording by tapping the ‘Record’ button again.
@@ -429,198 +753,25 @@ Follow @Ollie Mattison
 2. Once you are done, lift your finger from the camera and tap the ‘Save’ button from the bottom left corner of the screen.
 3. You will see the ‘Saved to memories’ message. Now, browse your Snapchat folder to locate the video.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![snapchat save memory](https://images.wondershare.com/filmora/article-images/snapchat-save-memory.JPG)
 
 4. If you forgot to save it before posting as a story, then go to the ‘Stories’ tab and click on the three vertical dots next to ‘My Story’ and select the video. Click the ‘Save’ button next to it to save Snapchat videos to your mobile.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
  It is not impossible to save Snapchat videos to your Mac or Android phone. In fact, you just need to learn the right way that suits you. Be it through the apps to save Snapchat videos and stories or taking screenshots in ‘Airplane’ mode, you got to be quick and save what you like.
 
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- The popular social networking app Snapchat comes with some ephemeral features. This self-deleting feature deters users from **saving Snapchat videos** of their friends. Snapchat photos, videos, and stories of contacts vanish from storyboard right after you view them.
-
- So, what will you do to save photos or videos from your friends’ Snapchat or Snap Stories long before they are gone? You can take a screenshot, save in flight mode, use your computer, or an app to capture the videos and images.
-
- Through this article, we are going to tell you, how to save Snapchats to your phone to make you watch them later.
-
-* [**Part1: How to Save Snapchats without them knowing**](#part1)
-* [**Part2: How to save Snapchat videos on Mac**](#part2)
-* [**Part3: How to save Snapchat videos on Android**](#part3)
-* [**Part4: How to save Snapchat videos to your Phone**](#part4)
-
-## Part 1: How to Save Snapchats without them knowing
-
- You want to save a friend’s Snaps, but Snapchat immediately alerts them of the screen shot taken. Hence, it is not possible to save other’s pictures or videos in Snapchat in incognito mode. You don’t need apps to save Snapchat to your phone. There is hardly a feasible way to do so without the senders’ knowledge. In such a situation, you can try out the following option – saving Snaps in flight mode.
-
- Here are the steps
-
-1. First of all, launch the Snapchat app on your mobile phone and leave it open. Go to your phone’s ‘Settings’ (Android/iPhone) and toggle on the ‘Airplane/Flight’ mode. Airplane/Flight mode disables all the wireless connections, be it network signals or internet related services for your device (Wi-Fi as well as cellular).
-
-![snapchat save without knowing](https://images.wondershare.com/filmora/article-images/snapchat-save-without-knowing.JPG)
-
-2. Browse the Snapchat inbox and view the desired Snap that you wish to save, and quickly take a screenshot. Make sure to be quick enough and do it before the Snap expires.
-3. Now, logout from your Snapchat account right after taking the screenshot. You need to follow the logout process according to your device specific settings. Being in ‘Airplane/Flight’ mode you can’t logout, but click the logout option anyway (this is vital!).
-
-![snapchat log out](https://images.wondershare.com/filmora/article-images/snapchat-log-out.JPG)
-
-4. Here, you need to close the Snapchat app on your mobile phone by swiping out the Snapchat app (up/sideways depending on Android/iPhone) from your device’s force quit screen.
-5. Toggle off the ‘Airplane/Flight’ mode and wait until your phone connects to the Wi-Fi or mobile network. Now, launch the Snapchat app again and login with the same credentials. The Snaps you have taken screenshots of will still appear as unopened on the storyboard and your friend will have no clue about the Snap being screenshot.
-
- **Read More to Get :** [How to Screenshot on Snapchat without Them Knowing >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 2: How to save Snapchat videos on Mac
-
- After learning to take screenshots of Snaps using the ‘Airplane’ mode, how about saving Snapchat videos on your Mac computer? Yes, you can easily save Snapchat videos using your iPhone and Mac computer. The process involves recording your iPhone’s screen through your Mac as a movie and then saving it. Here is how to do it
-
-1. Take and connect your iPhone and Mac computer using a lightning cable. Make sure that they are pre-synced. Now, launch QuickTime Player on your computer and then tap ‘File’ in the finder menu, then ‘New Movie Recording’.
-
-![snapchat quicktime](https://images.wondershare.com/filmora/article-images/snapchat-quiktime.JPG)
-
-2. This will make your Mac’s camera act as the primary camera/recording device. To turn the iPhone as the recording device, go to the QuickTime screen and tap the ‘downward arrow’ button adjacent to the record button. The iPhone will be available under both the Camera and Microphone section, choose it for both the options.
-
-![snapchat record](https://images.wondershare.com/filmora/article-images/snapchat-record.JPG)
-
-3. You’ll now notice that your iPhone’s screen has been mirrored with your Mac computer.
-4. Now, on your iPhone, go to Snapchat and browse the inbox. Subsequently, on your Mac, tap the ‘Record’ button and then start viewing the snaps on your iPhone. QuickTime will record everything from the snaps and save it on your computer.
-5. After you’re done with recording, tap the ‘Record’ button again to stop it. Lastly, go to ‘File’ and click ‘Save’, the file format to which the file will be saved is .mov which is generally supported by majority of movie players.
-
-## Part 3: How to save Snapchat videos on Android
-
- In case you are looking for a way to save Snapchat videos, take screenshots of chats, make slideshows of stories, or record other’s stories on your Android device itself, then AZ Screen recorder is one such app to save those Snapchats. It doesn’t require any root access to your Android phone, so is preferred by most users.
-
- Step-by-step Tutorial
-
-1. Download the Apk file, install, and launch the AZ Screen Recorder Snapchat App. Set up the account in your Android phone with required information.
-2. Tap the ‘Record’ button in AZ Screen Recorder and then open Snapchat inbox. Browse through the content you want to record, the app will record everything on the go.
-
-![snapchat az screen recorder](https://images.wondershare.com/filmora/article-images/snapchat-az-screen-recorder.JPG)
-
-3. Stop the recording by tapping the ‘Record’ button again.
-
- Note: When saving Snapchat videos via this method, Snapchat is unable to trace that the video or stories are being recorded. Thereby, you save the Snapchat stories without even notifying the uploader.
-
-## Part 4: How to save Snapchat videos to your Phone
-
- If you are wondering about saving your own Snapchat videos to your phone, then you are at the right place for a solution. It’s pretty simple, just like saving a photo.
-
- Here is how
-
-1. Launch Snapchat in your mobile phone and then press and hold the camera button to record a video.
-2. Once you are done, lift your finger from the camera and tap the ‘Save’ button from the bottom left corner of the screen.
-3. You will see the ‘Saved to memories’ message. Now, browse your Snapchat folder to locate the video.
-
-![snapchat save memory](https://images.wondershare.com/filmora/article-images/snapchat-save-memory.JPG)
-
-4. If you forgot to save it before posting as a story, then go to the ‘Stories’ tab and click on the three vertical dots next to ‘My Story’ and select the video. Click the ‘Save’ button next to it to save Snapchat videos to your mobile.
-
-## Conclusion
-
- It is not impossible to save Snapchat videos to your Mac or Android phone. In fact, you just need to learn the right way that suits you. Be it through the apps to save Snapchat videos and stories or taking screenshots in ‘Airplane’ mode, you got to be quick and save what you like.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- The popular social networking app Snapchat comes with some ephemeral features. This self-deleting feature deters users from **saving Snapchat videos** of their friends. Snapchat photos, videos, and stories of contacts vanish from storyboard right after you view them.
-
- So, what will you do to save photos or videos from your friends’ Snapchat or Snap Stories long before they are gone? You can take a screenshot, save in flight mode, use your computer, or an app to capture the videos and images.
-
- Through this article, we are going to tell you, how to save Snapchats to your phone to make you watch them later.
-
-* [**Part1: How to Save Snapchats without them knowing**](#part1)
-* [**Part2: How to save Snapchat videos on Mac**](#part2)
-* [**Part3: How to save Snapchat videos on Android**](#part3)
-* [**Part4: How to save Snapchat videos to your Phone**](#part4)
-
-## Part 1: How to Save Snapchats without them knowing
-
- You want to save a friend’s Snaps, but Snapchat immediately alerts them of the screen shot taken. Hence, it is not possible to save other’s pictures or videos in Snapchat in incognito mode. You don’t need apps to save Snapchat to your phone. There is hardly a feasible way to do so without the senders’ knowledge. In such a situation, you can try out the following option – saving Snaps in flight mode.
-
- Here are the steps
-
-1. First of all, launch the Snapchat app on your mobile phone and leave it open. Go to your phone’s ‘Settings’ (Android/iPhone) and toggle on the ‘Airplane/Flight’ mode. Airplane/Flight mode disables all the wireless connections, be it network signals or internet related services for your device (Wi-Fi as well as cellular).
-
-![snapchat save without knowing](https://images.wondershare.com/filmora/article-images/snapchat-save-without-knowing.JPG)
-
-2. Browse the Snapchat inbox and view the desired Snap that you wish to save, and quickly take a screenshot. Make sure to be quick enough and do it before the Snap expires.
-3. Now, logout from your Snapchat account right after taking the screenshot. You need to follow the logout process according to your device specific settings. Being in ‘Airplane/Flight’ mode you can’t logout, but click the logout option anyway (this is vital!).
-
-![snapchat log out](https://images.wondershare.com/filmora/article-images/snapchat-log-out.JPG)
-
-4. Here, you need to close the Snapchat app on your mobile phone by swiping out the Snapchat app (up/sideways depending on Android/iPhone) from your device’s force quit screen.
-5. Toggle off the ‘Airplane/Flight’ mode and wait until your phone connects to the Wi-Fi or mobile network. Now, launch the Snapchat app again and login with the same credentials. The Snaps you have taken screenshots of will still appear as unopened on the storyboard and your friend will have no clue about the Snap being screenshot.
-
- **Read More to Get :** [How to Screenshot on Snapchat without Them Knowing >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 2: How to save Snapchat videos on Mac
-
- After learning to take screenshots of Snaps using the ‘Airplane’ mode, how about saving Snapchat videos on your Mac computer? Yes, you can easily save Snapchat videos using your iPhone and Mac computer. The process involves recording your iPhone’s screen through your Mac as a movie and then saving it. Here is how to do it
-
-1. Take and connect your iPhone and Mac computer using a lightning cable. Make sure that they are pre-synced. Now, launch QuickTime Player on your computer and then tap ‘File’ in the finder menu, then ‘New Movie Recording’.
-
-![snapchat quicktime](https://images.wondershare.com/filmora/article-images/snapchat-quiktime.JPG)
-
-2. This will make your Mac’s camera act as the primary camera/recording device. To turn the iPhone as the recording device, go to the QuickTime screen and tap the ‘downward arrow’ button adjacent to the record button. The iPhone will be available under both the Camera and Microphone section, choose it for both the options.
-
-![snapchat record](https://images.wondershare.com/filmora/article-images/snapchat-record.JPG)
-
-3. You’ll now notice that your iPhone’s screen has been mirrored with your Mac computer.
-4. Now, on your iPhone, go to Snapchat and browse the inbox. Subsequently, on your Mac, tap the ‘Record’ button and then start viewing the snaps on your iPhone. QuickTime will record everything from the snaps and save it on your computer.
-5. After you’re done with recording, tap the ‘Record’ button again to stop it. Lastly, go to ‘File’ and click ‘Save’, the file format to which the file will be saved is .mov which is generally supported by majority of movie players.
-
-## Part 3: How to save Snapchat videos on Android
-
- In case you are looking for a way to save Snapchat videos, take screenshots of chats, make slideshows of stories, or record other’s stories on your Android device itself, then AZ Screen recorder is one such app to save those Snapchats. It doesn’t require any root access to your Android phone, so is preferred by most users.
-
- Step-by-step Tutorial
-
-1. Download the Apk file, install, and launch the AZ Screen Recorder Snapchat App. Set up the account in your Android phone with required information.
-2. Tap the ‘Record’ button in AZ Screen Recorder and then open Snapchat inbox. Browse through the content you want to record, the app will record everything on the go.
-
-![snapchat az screen recorder](https://images.wondershare.com/filmora/article-images/snapchat-az-screen-recorder.JPG)
-
-3. Stop the recording by tapping the ‘Record’ button again.
-
- Note: When saving Snapchat videos via this method, Snapchat is unable to trace that the video or stories are being recorded. Thereby, you save the Snapchat stories without even notifying the uploader.
-
-## Part 4: How to save Snapchat videos to your Phone
-
- If you are wondering about saving your own Snapchat videos to your phone, then you are at the right place for a solution. It’s pretty simple, just like saving a photo.
-
- Here is how
-
-1. Launch Snapchat in your mobile phone and then press and hold the camera button to record a video.
-2. Once you are done, lift your finger from the camera and tap the ‘Save’ button from the bottom left corner of the screen.
-3. You will see the ‘Saved to memories’ message. Now, browse your Snapchat folder to locate the video.
-
-![snapchat save memory](https://images.wondershare.com/filmora/article-images/snapchat-save-memory.JPG)
-
-4. If you forgot to save it before posting as a story, then go to the ‘Stories’ tab and click on the three vertical dots next to ‘My Story’ and select the video. Click the ‘Save’ button next to it to save Snapchat videos to your mobile.
-
-## Conclusion
-
- It is not impossible to save Snapchat videos to your Mac or Android phone. In fact, you just need to learn the right way that suits you. Be it through the apps to save Snapchat videos and stories or taking screenshots in ‘Airplane’ mode, you got to be quick and save what you like.
-
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -644,3 +795,47 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-covert-snapsnapper-stealth-techniques-for-picture-capture/"><u>[New] 2024 Approved  Covert SnapSnapper  Stealth Techniques for Picture Capture</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-cutting-edge-techniques-making-mac-videos-for-snapchat/"><u>[New] 2024 Approved  Cutting-Edge Techniques  Making Mac Videos for Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-embrace-your-inner-cartoon-how-to-apply-snapchats-anime-effect/"><u>[New] 2024 Approved  Embrace Your Inner Cartoon  How To Apply Snapchat's Anime Effect</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-perfect-pictures-at-work-master-snap-camera-use/"><u>[New] 2024 Approved  Perfect Pictures at Work  Master Snap Camera Use</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-a-snapshot-into-effective-business-use-of-snapchat-for-2024/"><u>[New] A Snapshot Into Effective Business Use of Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-explore-the-world-of-mobile-video-editing-with-snapchat-favorites-for-2024/"><u>[New] Explore the World of Mobile Video Editing with Snapchat Favorites for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-flipboard-celebs-snapchat-reels-for-2024/"><u>[New] Flipboard Celebs' Snapchat Reels for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-simplifying-your-snapchat-experience-3-essential-steps/"><u>[New] In 2024, Simplifying Your Snapchat Experience - 3 Essential Steps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-soundtracking-your-snapchats/"><u>[New] In 2024, SoundTracking Your Snapchats</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-the-experts-blueprint-boosting-income-via-vimeo-advertising/"><u>[New] In 2024, The Expert's Blueprint  Boosting Income via Vimeo Advertising</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-strategies-for-retrieving-private-chat-photos/"><u>[New] Strategies for Retrieving Private Chat Photos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-seamless-path-integrating-your-social-photos-into-device-storage-for-2024/"><u>[New] The Seamless Path  Integrating Your Social Photos Into Device Storage for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-ig-music-companion-for-2024/"><u>[New] The Ultimate IG Music Companion for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-understanding-snapchats-emojis-more-than-just-fun/"><u>[New] Understanding Snapchat's Emojis  More Than Just Fun</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-visionsnap-tech-your-guide-to-the-best-of-2023-for-2024/"><u>[New] VisionSnap Tech – Your Guide to the Best of 2023 for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-how-to-screen-hulu-on-any-system-seamlessly/"><u>[Updated] 2024 Approved  How to Screen Hulu On Any System Seamlessly</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-beyond-basic-filters-elevating-your-snapchat-game/"><u>[Updated] Beyond Basic Filters  Elevating Your Snapchat Game</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-elevating-your-visual-narrative-smart-editing-on-snapchat/"><u>[Updated] Elevating Your Visual Narrative  Smart Editing on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-essential-strategies-for-capturing-your-best-moments-in-snapchat-for-2024/"><u>[Updated] Essential Strategies for Capturing Your Best Moments in Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-from-concept-to-completion-mastering-the-art-of-snap-campaigns/"><u>[Updated] From Concept to Completion  Mastering the Art of Snap Campaigns</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-rhythm-and-recording-in-snapchat/"><u>[Updated] In 2024, Rhythm & Recording in Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snap-it-up-15-powerful-posting-techniques-revealed-for-2024/"><u>[Updated] Snap It Up! 15 Powerful Posting Techniques Revealed for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snaps-boomerangs-mastering-and-tips-for-2024/"><u>[Updated] Snap's Boomerangs  Mastering & Tips for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-streamlining-videographs-for-instagram-via-mac/"><u>[Updated] Streamlining Videographs for Instagram via Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevate-your-typography-with-affects-best-in-class-plug-ins/"><u>2024 Approved  Elevate Your Typography with Affects' Best-in-Class Plug-Ins</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-streamlined-recording-procedures-for-snapchat-ready-videos/"><u>2024 Approved  Streamlined Recording Procedures for Snapchat-Ready Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-5-efforts-crafting-perfect-titles/"><u>2024 Approved  Top 5 Efforts  Crafting Perfect Titles</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-unveiling-the-secret-flip-your-videos-on-snapchat/"><u>2024 Approved  Unveiling the Secret  Flip Your Videos on Snapchat</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-erase-iphone-12-pro-when-its-locked-within-seconds-by-drfone-ios/"><u>3 Ways to Erase iPhone 12 Pro When Its Locked Within Seconds</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/analyzing-lack-of-interaction-is-it-a-block-in-2024/"><u>Analyzing Lack of Interaction  Is It a Block, In 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/disable-screen-lock-on-infinix-smart-8-by-drfone-android-unlock-android-unlock/"><u>Disable screen lock on Infinix Smart 8</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/elevating-earning-strategies-for-snapchat-influencers-for-2024/"><u>Elevating Earning Strategies for Snapchat Influencers for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-standard-to-supreme-mastering-sdr-to-hdr-video-upgrade/"><u>From Standard to Supreme  Mastering SDR-to-HDR Video Upgrade</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-realme-gt-5-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-oneplus-12r-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from OnePlus 12R to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/navigating-the-world-of-mac-screenshot-with-confidence/"><u>Navigating the World of Mac Screenshot with Confidence</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streaming-directly-from-facebook-to-your-screen/"><u>Streaming Directly From Facebook to Your Screen</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/total-byte-requirement-for-24-hours-of-movie-viewing/"><u>Total Byte Requirement for 24 Hours of Movie Viewing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unleashing-creativity-quick-lens-building-on-snapchat/"><u>Unleashing Creativity  Quick Lens Building on Snapchat</u></a></li>
+</ul></div>

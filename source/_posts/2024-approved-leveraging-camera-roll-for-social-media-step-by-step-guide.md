@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Leveraging Camera Roll for Social Media - Step-by-Step Guide\""
-date: 2024-05-23T10:12:13.739Z
-updated: 2024-05-24T10:12:13.739Z
+date: 2024-07-25T11:03:36.793Z
+updated: 2024-07-26T11:03:36.793Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Leveraging Camera Roll for Social Media - Step-by-Step Guide\""
 excerpt: "\"This Article Describes 2024 Approved: Leveraging Camera Roll for Social Media - Step-by-Step Guide\""
 keywords: "PhotoSharing Guide,CamRoll to Snapchat,SocialMedia Photoshoot,MobileImageUploads,CameraScreenshotsTips,SharePhotosEfficiently,InstagramPhotoOptimization"
-thumbnail: https://www.lifewire.com/thmb/qkonwdyTr_bhH6rllvfkAkzchdo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_how-to-fix-it-when-roku-tv-wont-turn-on-5194012-47a21096d48e45f4bdc94717a679da09.jpg
+thumbnail: https://thmb.techidaily.com/622d9fe73f7f1e73d5569e41ea521313a670d1c14e23661bf478ad1eace74e43.jpg
 ---
 
 ## Leveraging Camera Roll for Social Media - Step-by-Step Guide
@@ -31,16 +31,25 @@ This article will explain how to send a picture from your memories or camera rol
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Send a Snap from Memories/Camera Roll as a Snap
 
 Are you tired of sending your live selfies as snaps to your friends? In this section, you can learn **how to send snaps from the camera roll** without capturing a live snap. For this, we will explain some manual methods as well as some reliable apps in a detailed manner.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 1: Using a Snapchat Filter
 
 Snapchat allows you to apply its filters on any of your camera roll's pictures. By selecting a particular photo or video from your memories or snap, you can instantly add a filter to them. Afterward, you can send the filtered image to your friends as a regular snap. However, this solution has a significant drawback that you must know. The limitation is that the receiver of the snap would be able to see that the sent picture is from the camera roll.
 
 Step1 Open your Snapchat and swipe up to open the 'Memories'. Go to your Camera Roll and select any particular picture from there.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ![access camera roll tab](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-1.jpg)
 
 Step2 After choosing a particular photo, tap on the "**Edit**" icon at the bottom left corner. You can apply filters to the photo by swiping from right to left. Keep swiping until you can find your preferred filter.
@@ -49,8 +58,15 @@ Step2 After choosing a particular photo, tap on the "**Edit**" icon at the botto
 
 Step1 Once you have applied the filter to the photo, touch on the "Send To" button. Choose any Snapchat friend to whom you want to send the picture. Next, hit the "Send" icon again to send the photo successfully.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![tap on send to button](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 2: Using a Sticker
 
 If you want to make your camera roll picture funny and entertaining, you can add stickers to it. Through Snapchat, you can make your customized sticker of any interesting face or object. Moreover, Snapchat also offers a huge variety of built-in stickers. If you don't want to create a customized sticker, you can easily add the built-in sticker with a single tap.
@@ -61,6 +77,9 @@ Step1 Once you have opened your Snapchat, go to Memories. From there, you can ac
 
 Step2 After selecting a specific picture from Camera Roll, tap on the "Pencil" icon at the bottom left corner to edit the photo. Afterward, select the "Scissor" icon from the right section. Using the Snapchat Scissor, you can create a sticker of any face or object you find interesting. Just select any area of the photo using your finger.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![create your sticker](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-5.jpg)
 
 Step3 Now close the picture opened for creating the sticker. Once done, take a snap from your Snapchat to proceed. Now from the right section, tap on the "Sticker" icon. Here, you can choose the built-in stickers easily. Or you can navigate to the "Scissor" icon to select your created sticker.
@@ -91,6 +110,9 @@ Step3 Now head to your Play Store or App Store according to the OS of your mobil
 
 Step4 On the LMK app, tap on the "Plus" icon to proceed. Afterward, tap on "Post" and hit the "Camera" icon from the bottom left side. Now choose the photo that you have recently saved in your gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![tap on camera icon](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-11.jpg)
 
 Step5 After choosing the photo from the gallery, tap "Post to Snapchat." By doing so, you will be redirected to your Snapchat. From your image, remove the added stickers of the LMK app. You can drag the sticker to the trash bin icon. Afterward, tap on the "Paper Clip" icon to remove the added attachment.
@@ -107,6 +129,9 @@ Casper is an excellent alternative for Snapchat users. Using this app, you can i
 
 Step1 Open Settings from your phone and tap "Apps." Afterward, select "Manage Apps" to proceed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![open manage apps settings](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-14.jpg)
 
 Step2 Once done, locate the "Google Chrome" option and turn on the toggle of "Install from unknown sources."
@@ -121,6 +146,9 @@ Step2 Hit the "Plus" icon and tap on "Choose from Gallery." After selecting a pi
 
 Step3 Choose your preferred contact to whom you want to send the picture. For confirmation, tap on the "Send" button again.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Many youngsters are addicted to Snapchat to provide daily updates to their friends. You can utilize the offered filters, lenses, and stickers on Snapchat to make your snaps vibrant. However, this article has guided you on **how to send snaps from the camera roll** as a regular snap. You can send everyday snaps to your friends without mentioning the camera roll picture. For this, you can rely upon our recommended solutions and applications.
@@ -139,6 +167,9 @@ Many youngsters are addicted to Snapchat to provide daily updates to their frien
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 ## How to Send a Snap from Memories/Camera Roll as a Snap
@@ -151,10 +182,16 @@ Snapchat allows you to apply its filters on any of your camera roll's pictures. 
 
 Step1 Open your Snapchat and swipe up to open the 'Memories'. Go to your Camera Roll and select any particular picture from there.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![access camera roll tab](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-1.jpg)
 
 Step2 After choosing a particular photo, tap on the "**Edit**" icon at the bottom left corner. You can apply filters to the photo by swiping from right to left. Keep swiping until you can find your preferred filter.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ![tap on edit option](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-2.jpg)
 
 Step1 Once you have applied the filter to the photo, touch on the "Send To" button. Choose any Snapchat friend to whom you want to send the picture. Next, hit the "Send" icon again to send the photo successfully.
@@ -167,6 +204,9 @@ If you want to make your camera roll picture funny and entertaining, you can add
 
 Step1 Once you have opened your Snapchat, go to Memories. From there, you can access and select any picture from the Camera Roll.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![choose camera roll option](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-4.jpg)
 
 Step2 After selecting a specific picture from Camera Roll, tap on the "Pencil" icon at the bottom left corner to edit the photo. Afterward, select the "Scissor" icon from the right section. Using the Snapchat Scissor, you can create a sticker of any face or object you find interesting. Just select any area of the photo using your finger.
@@ -193,10 +233,17 @@ Step1 Open your Snapchat either from your Android or iOS device. Proceed to the 
 
 Step2 Now hit the "Arrow" button to share the selected snap. From the displayed options, tap on the "Download" icon to save the picture on your device gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![download the selected photo](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-9.jpg)
 
 Step3 Now head to your Play Store or App Store according to the OS of your mobile device. From there, download the LMK app. After its complete installation, open this app using your Snapchat login.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![download and install lmk app](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-10.jpg)
 
 Step4 On the LMK app, tap on the "Plus" icon to proceed. Afterward, tap on "Post" and hit the "Camera" icon from the bottom left side. Now choose the photo that you have recently saved in your gallery.
@@ -209,8 +256,15 @@ Step5 After choosing the photo from the gallery, tap "Post to Snapchat." By doin
 
 Step6 Once done with removing the sticker and attached link, hit the "Send" button. Now choose a Snapchat contact and hit the "Send" button.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![send snap using lmk app](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### Method 4: Casper APK for Android
 
 Casper is an excellent alternative for Snapchat users. Using this app, you can instantly add stickers and filters to the captured snaps. You can also save and forward snaps using this app to other platforms. However, Casper is not available on the Play Store. You can download the [Casper APK](https://www.apkmirror.com/apk/casper-io/casper/) from your web browser easily. Before installing it, you should alter some settings from your phone, as described below:
@@ -221,6 +275,9 @@ Step1 Open Settings from your phone and tap "Apps." Afterward, select "Manage Ap
 
 Step2 Once done, locate the "Google Chrome" option and turn on the toggle of "Install from unknown sources."
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![enable install unknown apps toggle](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-15.jpg)
 
 Once you are done with installing Casper APK, you can take help from the following steps:
@@ -255,8 +312,14 @@ Many youngsters are addicted to Snapchat to provide daily updates to their frien
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Unlocking Creative Expression: Tips for Sharing GIFs on Snapchat
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![snapchat-poster](https://images.wondershare.com/filmora/article-images/snapchat-poster.png)
 
 For all informal interactions between pals, Snapchat is the go-to app. Many configurable options are available on the platform, allowing you to express your inner creative sides. Snapchat helps to put your spin on anything, whether it's just sharing random photos to your contacts or having extended chats.
@@ -269,6 +332,9 @@ Given how entertaining GIFs can be, knowing how to send gif on snapchat is essen
 
 Do you want to know how to send gif on snapchat in different simple ways? Then you've arrived at the correct page. In this post, we'll show you how to send gif on snapchat in just a few easy and simple steps.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ### 1.How to send gif on snapchat?
 
 * On your phone, open Snapchat.
@@ -299,6 +365,9 @@ On your phone, download the GIPHY app.
 
 That GIF has now been saved to your pictures folder and can be seen anytime you need that.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3.What is the best way to transmit GIFs on Snapchat?
 
 Putting GIFs in your photos is easy and takes only a few minutes. Here's how to accomplish it.
@@ -310,6 +379,9 @@ Putting GIFs in your photos is easy and takes only a few minutes. Here's how to 
 5. Once you've chosen a GIF, it'll show on the Snap for you to adjust and position anywhere you'd like.
 6. Lastly, to send the Snap to your pals, select the arrow option in the lower right corner.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![best-way-to-transmit-gif-on-snapchat](https://images.wondershare.com/filmora/article-images/best-way-to-transmit-gif-on-snapchat.png)
 
 ### 4.On Android, how to send gif on snapchat Messages?
@@ -322,10 +394,17 @@ To install and activate the Gboard application and transmit GIFs directly from i
 
 1. Download the Gboard application on your Android.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![gboard-poster](https://images.wondershare.com/filmora/article-images/gboard-poster.jpg)
 
 1. Open the app and select Enable in Configurations from the menu.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![gboard-setting1](https://images.wondershare.com/filmora/article-images/gboard-setting.jpg)
 
 1. The Communication and Input menu will appear in Preferences.
@@ -340,6 +419,9 @@ Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals 
 1. Turn on the GIPHY keypad on your iPhone. Install the GIPHY phone app from the Apple Store. After you've downloaded the app, you'll need to activate the GIPHY keypad on your iPhone.
 2. To do just that, go over to the iPhone configuration menu and select “General” from the drop-down menu.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ios-setting-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting-send-gif.png)
 
 1. Scroll to the bottom of the Keypad choice, then click "Keypads" once again.
@@ -348,6 +430,9 @@ Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals 
 
 1. All of the newly added keyboards will now be visible. Click the “Add Additional Keyboard” option to add GIPHY.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ios-setting3-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting3-send-gif.png)
 
 ![ios-setting4-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting4-send-gif.png)
@@ -370,6 +455,9 @@ Given how entertaining GIFs can be, knowing how to send gif on snapchat is essen
 
 Do you want to know how to send gif on snapchat in different simple ways? Then you've arrived at the correct page. In this post, we'll show you how to send gif on snapchat in just a few easy and simple steps.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1.How to send gif on snapchat?
 
 * On your phone, open Snapchat.
@@ -379,6 +467,9 @@ Do you want to know how to send gif on snapchat in different simple ways? Then y
 * Choose the GIF you want to use.
 * Finally, please include it in the picture.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2.How to make your animated GIFs
 
 GIF means Graphics Interchange Format, and it's simply a series of moving, dynamic pictures (think Harry Potter) that loop indefinitely. They give your image, which would otherwise be stagnant and dull, a new dimension.
@@ -400,6 +491,9 @@ On your phone, download the GIPHY app.
 
 That GIF has now been saved to your pictures folder and can be seen anytime you need that.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3.What is the best way to transmit GIFs on Snapchat?
 
 Putting GIFs in your photos is easy and takes only a few minutes. Here's how to accomplish it.
@@ -413,16 +507,25 @@ Putting GIFs in your photos is easy and takes only a few minutes. Here's how to 
 
 ![best-way-to-transmit-gif-on-snapchat](https://images.wondershare.com/filmora/article-images/best-way-to-transmit-gif-on-snapchat.png)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4.On Android, how to send gif on snapchat Messages?
 
 You must download the GBoard app on your phone to transfer GIFs to your pals immediately from a keypad on Android.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### 5.How can I get Gboard to work on Android?
 
 To install and activate the Gboard application and transmit GIFs directly from it, follow the procedure.
 
 1. Download the Gboard application on your Android.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ![gboard-poster](https://images.wondershare.com/filmora/article-images/gboard-poster.jpg)
 
 1. Open the app and select Enable in Configurations from the menu.
@@ -441,14 +544,23 @@ Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals 
 1. Turn on the GIPHY keypad on your iPhone. Install the GIPHY phone app from the Apple Store. After you've downloaded the app, you'll need to activate the GIPHY keypad on your iPhone.
 2. To do just that, go over to the iPhone configuration menu and select “General” from the drop-down menu.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ios-setting-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting-send-gif.png)
 
 1. Scroll to the bottom of the Keypad choice, then click "Keypads" once again.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ios-setting2-send-gif.png](https://images.wondershare.com/filmora/article-images/ios-setting2-send-gif.png)
 
 1. All of the newly added keyboards will now be visible. Click the “Add Additional Keyboard” option to add GIPHY.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ![ios-setting3-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting3-send-gif.png)
 
 ![ios-setting4-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting4-send-gif.png)
@@ -471,6 +583,9 @@ Given how entertaining GIFs can be, knowing how to send gif on snapchat is essen
 
 Do you want to know how to send gif on snapchat in different simple ways? Then you've arrived at the correct page. In this post, we'll show you how to send gif on snapchat in just a few easy and simple steps.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ### 1.How to send gif on snapchat?
 
 * On your phone, open Snapchat.
@@ -518,6 +633,10 @@ Putting GIFs in your photos is easy and takes only a few minutes. Here's how to 
 
 You must download the GBoard app on your phone to transfer GIFs to your pals immediately from a keypad on Android.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### 5.How can I get Gboard to work on Android?
 
 To install and activate the Gboard application and transmit GIFs directly from it, follow the procedure.
@@ -528,13 +647,22 @@ To install and activate the Gboard application and transmit GIFs directly from i
 
 1. Open the app and select Enable in Configurations from the menu.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![gboard-setting1](https://images.wondershare.com/filmora/article-images/gboard-setting.jpg)
 
 1. The Communication and Input menu will appear in Preferences.
 2. Choose Gboard from the list of available keyboards.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![gboard-setting2](https://images.wondershare.com/filmora/article-images/gboard-setting2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 6.In iOS, how to send gif on snapchat Messages?
 
 Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals via Snapchat chats. However, you must first activate the keypad.
@@ -550,8 +678,14 @@ Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals 
 
 1. All of the newly added keyboards will now be visible. Click the “Add Additional Keyboard” option to add GIPHY.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ios-setting3-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting3-send-gif.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![ios-setting4-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting4-send-gif.png)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -572,6 +706,9 @@ Given how entertaining GIFs can be, knowing how to send gif on snapchat is essen
 
 Do you want to know how to send gif on snapchat in different simple ways? Then you've arrived at the correct page. In this post, we'll show you how to send gif on snapchat in just a few easy and simple steps.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1.How to send gif on snapchat?
 
 * On your phone, open Snapchat.
@@ -613,8 +750,14 @@ Putting GIFs in your photos is easy and takes only a few minutes. Here's how to 
 5. Once you've chosen a GIF, it'll show on the Snap for you to adjust and position anywhere you'd like.
 6. Lastly, to send the Snap to your pals, select the arrow option in the lower right corner.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![best-way-to-transmit-gif-on-snapchat](https://images.wondershare.com/filmora/article-images/best-way-to-transmit-gif-on-snapchat.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### 4.On Android, how to send gif on snapchat Messages?
 
 You must download the GBoard app on your phone to transfer GIFs to your pals immediately from a keypad on Android.
@@ -634,8 +777,14 @@ To install and activate the Gboard application and transmit GIFs directly from i
 1. The Communication and Input menu will appear in Preferences.
 2. Choose Gboard from the list of available keyboards.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![gboard-setting2](https://images.wondershare.com/filmora/article-images/gboard-setting2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 6.In iOS, how to send gif on snapchat Messages?
 
 Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals via Snapchat chats. However, you must first activate the keypad.
@@ -678,3 +827,43 @@ For macOS 10.12 or later
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-make-a-creative-split-screen-video-for-youtube/"><u>[New] 2024 Approved  How to Make a Creative Split-Screen Video for YouTube?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-lens-language-speaking-visually-with-snapchat-filters/"><u>[New] 2024 Approved  Lens Language  Speaking Visually with Snapchat Filters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-engagement-your-essential-list-of-15-opener-templates/"><u>[New] 2024 Approved  Mastering Engagement  Your Essential List of 15 Opener Templates</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-expertise-in-ease-simplifying-complex-snapchat-filters/"><u>[New] Expertise in Ease  Simplifying Complex Snapchat Filters</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-extend-your-snapstreak-success-with-these-ideas/"><u>[New] Extend Your Snapstreak Success with These Ideas</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-sonic-steps-to-better-snapchat-videos/"><u>[New] In 2024, Sonic Steps to Better Snapchat Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-sneak-peek-to-secrecy-how-to-create-hidden-stories-for-2024/"><u>[New] Sneak Peek to Secrecy  How to Create Hidden Stories for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-complete-guide-to-captivating-your-audience-on-snapchat/"><u>[New] The Complete Guide to Captivating Your Audience on Snapchat</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-essential-ios-strategy-for-instagram-saving-for-2024/"><u>[New] The Essential iOS Strategy for Instagram Saving for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-user-friendly-way-of-migrating-snapchat-images-home/"><u>[New] The User-Friendly Way of Migrating SnapChat Images Home</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-uncovering-the-method-of-anti-play-video-snapchat-for-2024/"><u>[New] Uncovering the Method of Anti-Play Video Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-exploring-japanese-artistry-adding-anime-filters-on-snaps/"><u>[Updated] 2024 Approved  Exploring Japanese Artistry  Adding Anime Filters on Snaps</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-free-video-conferencing-excellence-plus-screen-sharing-guide/"><u>[Updated] 2024 Approved  Free Video Conferencing Excellence + Screen Sharing Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-streamlining-presentations-in-microsoft-teams-through-snap-capture/"><u>[Updated] 2024 Approved  Streamlining Presentations in Microsoft Teams Through Snap Capture</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-from-memory-to-moments-securely-uploading-photos-to-snapchat/"><u>[Updated] From Memory to Moments  Securely Uploading Photos to Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-step-by-step-rewinding-snapchat-videos/"><u>[Updated] In 2024, Step-by-Step  Rewinding Snapchat Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-insiders-guide-to-concealed-snap-content/"><u>[Updated] In 2024, The Insider's Guide to Concealed Snap Content</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-into-photo-magic-innovative-edits-on-snapchat-for-2024/"><u>[Updated] Step Into Photo Magic  Innovative Edits on Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-setting-up-snapchat-on-mac/"><u>[Updated] Step-by-Step  Setting Up Snapchat on Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-directing-your-podcast-to-itunes-stores/"><u>2024 Approved  Directing Your Podcast to iTunes Stores</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-unlocking-creative-expression-an-in-depth-guide-to-snapchat-filters/"><u>2024 Approved  Unlocking Creative Expression  An In-Depth Guide to Snapchat Filters</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-unravel-the-secrets-of-crafting-engaging-snapchat-boomerangs/"><u>2024 Approved  Unravel the Secrets of Crafting Engaging Snapchat Boomerangs</u></a></li>
+<li><a href="https://fox-access.techidaily.com/a-comprehensive-guide-to-bringing-vividness-to-your-videos-sdr-hdr-conversion/"><u>A Comprehensive Guide to Bringing Vividness to Your Videos  SDR-HDR Conversion</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-s23-tactical-edition-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy S23 Tactical Edition</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/disable-screen-lock-on-samsung-galaxy-s24plus-by-drfone-android-unlock-android-unlock/"><u>Disable screen lock on Samsung Galaxy S24+</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-lava-yuva-3-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-oneplus-open-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On OnePlus Open Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-extend-your-snapstreak-success-with-these-ideas/"><u>In 2024, Extend Your Snapstreak Success with These Ideas</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-iphone-12-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-realme-gt-neo-5-se-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Realme GT Neo 5 SE</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-on-iphone-15-plus-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue On iPhone 15 Plus</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/revisit-and-refine-your-past-editing-fbs-look-back-videos/"><u>Revisit and Refine Your Past  Editing FB's Look Back Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/secrets-to-crafting-winning-freefire-videos/"><u>Secrets to Crafting Winning FreeFire Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/strategies-to-locate-your-clandestine-snaps-for-2024/"><u>Strategies to Locate Your Clandestine Snaps for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-comprehensive-cheat-sheet-to-mastering-spotify-advertising-for-2024/"><u>The Comprehensive Cheat Sheet to Mastering Spotify Advertising for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-secrets-of-negative-video-spinning-in-snapchat/"><u>The Secrets of Negative Video Spinning in Snapchat</u></a></li>
+</ul></div>

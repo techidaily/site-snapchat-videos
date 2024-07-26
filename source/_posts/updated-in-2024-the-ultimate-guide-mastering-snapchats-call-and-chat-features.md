@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Ultimate Guide  Mastering Snapchat's Call & Chat Features\""
-date: 2024-05-23T12:00:24.068Z
-updated: 2024-05-24T12:00:24.068Z
+date: 2024-07-25T14:59:51.130Z
+updated: 2024-07-26T14:59:51.130Z
 tags:
   - ai video
   - ai snapchat
@@ -12,13 +12,16 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, The Ultimate Guide: Mastering Snapchat's Call & Chat Features\""
 excerpt: "\"This Article Describes [Updated] In 2024, The Ultimate Guide: Mastering Snapchat's Call & Chat Features\""
 keywords: "Snapchat Chat Tips,Learn Snapchat Calls,Snapchat Communication Guide,Enhance Snapchat Chats,Mastering Snapchat Messaging,Snapchat Call Feature Usage,Expert Snapchat Chat Tactics"
-thumbnail: https://www.lifewire.com/thmb/diK0QnCm_tW47lm9h0gpj5cfLdA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/usb-c-iphone-15.jpg-0f9a5dea5cfa4eb9aa39ac80fde473b3.jpg
+thumbnail: https://thmb.techidaily.com/0ef39d9a604e71499226be4f237e87d1b86c04c6f94c96b9949bbc0cc087d2d2.jpg
 ---
 
 ## The Ultimate Guide: Mastering Snapchat's Call & Chat Features
 
 # How to Video Chat/Call on Snapchat with 3 Steps
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -34,6 +37,15 @@ thumbnail: https://www.lifewire.com/thmb/diK0QnCm_tW47lm9h0gpj5cfLdA=/400x300/fi
 * [**Part1: How to video chat/call on Snapchat**](#part1)
 * [**Part2: Tips for using video chat/call**](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## Part 1: How to video chat/call on Snapchat
 
  Least people had an idea that Snapchat offers a sleek video calling feature as well. So, we are bringing you the steps as how to video call someone using Snapchat without any trouble. Let’s see how you can enjoy communicating face to face from your respective places–
@@ -42,6 +54,9 @@ thumbnail: https://www.lifewire.com/thmb/diK0QnCm_tW47lm9h0gpj5cfLdA=/400x300/fi
 
  First of all, launch the latest version of Snapchat on your mobile and then swipe right on the camera to get the ‘Friends’ list. You can also tap on the ‘Friends’ tab found at the bottom left corner of the screen. Now, find the contact you want to make a Snapchat video call with, and tap or right swipe on it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![snapchat call](https://images.wondershare.com/filmora/article-images/snapchat-call.JPG)
 
 #### Step 2: Press video camera icon
@@ -64,6 +79,9 @@ thumbnail: https://www.lifewire.com/thmb/diK0QnCm_tW47lm9h0gpj5cfLdA=/400x300/fi
 
  Note: By swiping the screen down, you can minimize the Snapchat video call.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Tips for using video chat/call
 
  Now that you are well aware of Snapchat video chat, how about some extra tips to add more fun to your chat sessions? So, get creative and enjoy the fun
@@ -72,6 +90,9 @@ thumbnail: https://www.lifewire.com/thmb/diK0QnCm_tW47lm9h0gpj5cfLdA=/400x300/fi
 
  When you want to show your friend what your pet is up to, or that blooming rose on your balcony, you will definitely need to roam around and adjust the front camera. But, you can show him/her without switching your place. Just double-tap the screen of your Snapchat video chat and your friend can see everything. Switching or swapping between your cameras during a Snapchat video call is that easy.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![snapchat double click](https://images.wondershare.com/filmora/article-images/snapchat-video-call.JPG)
 
 #### 2 Add stickers
@@ -94,95 +115,16 @@ thumbnail: https://www.lifewire.com/thmb/diK0QnCm_tW47lm9h0gpj5cfLdA=/400x300/fi
 
 ![snapchat send video call](https://images.wondershare.com/filmora/article-images/snapchat-send-video-call.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Final Verdict
 
  Moving towards the end, we hope you have got a broad idea about how to use Snapchat’s video call feature, and add cute and funny stickers as well to pep up the chat. So, what are you waiting for? Grab your mobile phone and start Snapchat video calling, we are sure that it will be so much fun than just sharing one sided snaps to each other. Thanks for going through the post. Please share your first experience with video calling with the Snapchat.
 
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Most people are not aware about **Snapchat video chat** facilities, though it’s been around since a long time. Sounds surprising though! Even few of our acquaintances approached us to know about **Snapchat video call**.
-
- Well! We decided to decipher the fact and reveal the video calling feature of Snapchat, to make your life simpler. Your favorite social networking app is not restricted to sharing photos, videos, and stories, they can make you talk and see your family and friends anytime.
-
- Here, in this article we are going to explain you the 3 steps to make a video call using Snapchat app.
-
-* [**Part1: How to video chat/call on Snapchat**](#part1)
-* [**Part2: Tips for using video chat/call**](#part2)
-
-## Part 1: How to video chat/call on Snapchat
-
- Least people had an idea that Snapchat offers a sleek video calling feature as well. So, we are bringing you the steps as how to video call someone using Snapchat without any trouble. Let’s see how you can enjoy communicating face to face from your respective places–
-
-#### Step 1: Swipe right to start a video chat
-
- First of all, launch the latest version of Snapchat on your mobile and then swipe right on the camera to get the ‘Friends’ list. You can also tap on the ‘Friends’ tab found at the bottom left corner of the screen. Now, find the contact you want to make a Snapchat video call with, and tap or right swipe on it.
-
-![snapchat call](https://images.wondershare.com/filmora/article-images/snapchat-call.JPG)
-
-#### Step 2: Press video camera icon
-
- In this step, you will start calling your friend. For this, look for the video recorder icon on the next screen and tap on it to place the call. It should start ringing ASAP by sending them a chat request.
-
-![snapchat press](https://images.wondershare.com/filmora/article-images/snapchat-press.JPG)
-
-#### Step 3: Wait for answering
-
- Their phone will start ringing if they have enabled Snapchat notifications. Enabling notification will also let them know that you’re calling even if they are not using the app that time. Or else, they can only get the call, while using Snapchat.
-
-![snapchat wait call](https://images.wondershare.com/filmora/article-images/snapchat-wait-call.JPG)
-
- There are 3 options to respond to a call.
-
-1. If they click on ‘Watch’ option, they can see you, but you aren’t allowed for so.
-2. If they tap ‘Join’ option, it means both of you can see and talk to each other. In case they select ‘Ignore’ option, you will get a busy message.
-3. If you tap the green camera icon the video becomes one way, where only you can see them, but they won’t see you.
-
- Note: By swiping the screen down, you can minimize the Snapchat video call.
-
-## Part 2: Tips for using video chat/call
-
- Now that you are well aware of Snapchat video chat, how about some extra tips to add more fun to your chat sessions? So, get creative and enjoy the fun
-
-#### 1 Double check to switch
-
- When you want to show your friend what your pet is up to, or that blooming rose on your balcony, you will definitely need to roam around and adjust the front camera. But, you can show him/her without switching your place. Just double-tap the screen of your Snapchat video chat and your friend can see everything. Switching or swapping between your cameras during a Snapchat video call is that easy.
-
-![snapchat double click](https://images.wondershare.com/filmora/article-images/snapchat-video-call.JPG)
-
-#### 2 Add stickers
-
- You are up to surprise your BFF with cute and funny stickers during the Snapchat video chat? Why not! On your screen, tap the ‘Smiley’ tab and select the stickers, they will be included in your video chat and both of you can view them.
-
-![snapchat add sticker](https://images.wondershare.com/filmora/article-images/snapchat-add-sticker.JPG)
-
-#### 3 Close the call
-
- Well! Now that you guys ran out of topics for the day and want to end the call. It is very easy to close a Snapchat call. You just need to exit the video chat by going back to the recent conversations or switch to another app.
-
-#### 4 Make sure to upload the latest version
-
- It is advised that you update to the latest version of Snapchat to get the best out of this app.
-
-#### 5 Send video message
-
- When your friends are not online in Snapchat or haven’t enabled notifications for Snapchat video calls, you can still leave video messages for them. To share a video message, tap and hold the video recorder button in the chat, and record something up to 10 seconds, then send it. Your friends will get the video message when they open that message in their Snapchat.
-
-![snapchat send video call](https://images.wondershare.com/filmora/article-images/snapchat-send-video-call.JPG)
-
-## Final Verdict
-
- Moving towards the end, we hope you have got a broad idea about how to use Snapchat’s video call feature, and add cute and funny stickers as well to pep up the chat. So, what are you waiting for? Grab your mobile phone and start Snapchat video calling, we are sure that it will be so much fun than just sharing one sided snaps to each other. Thanks for going through the post. Please share your first experience with video calling with the Snapchat.
-
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -212,6 +154,9 @@ Follow @Ollie Mattison
 
  First of all, launch the latest version of Snapchat on your mobile and then swipe right on the camera to get the ‘Friends’ list. You can also tap on the ‘Friends’ tab found at the bottom left corner of the screen. Now, find the contact you want to make a Snapchat video call with, and tap or right swipe on it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![snapchat call](https://images.wondershare.com/filmora/article-images/snapchat-call.JPG)
 
 #### Step 2: Press video camera icon
@@ -234,6 +179,9 @@ Follow @Ollie Mattison
 
  Note: By swiping the screen down, you can minimize the Snapchat video call.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: Tips for using video chat/call
 
  Now that you are well aware of Snapchat video chat, how about some extra tips to add more fun to your chat sessions? So, get creative and enjoy the fun
@@ -248,6 +196,13 @@ Follow @Ollie Mattison
 
  You are up to surprise your BFF with cute and funny stickers during the Snapchat video chat? Why not! On your screen, tap the ‘Smiley’ tab and select the stickers, they will be included in your video chat and both of you can view them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![snapchat add sticker](https://images.wondershare.com/filmora/article-images/snapchat-add-sticker.JPG)
 
 #### 3 Close the call
@@ -262,6 +217,9 @@ Follow @Ollie Mattison
 
  When your friends are not online in Snapchat or haven’t enabled notifications for Snapchat video calls, you can still leave video messages for them. To share a video message, tap and hold the video recorder button in the chat, and record something up to 10 seconds, then send it. Your friends will get the video message when they open that message in their Snapchat.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![snapchat send video call](https://images.wondershare.com/filmora/article-images/snapchat-send-video-call.JPG)
 
 ## Final Verdict
@@ -289,6 +247,9 @@ Follow @Ollie Mattison
 * [**Part1: How to video chat/call on Snapchat**](#part1)
 * [**Part2: Tips for using video chat/call**](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: How to video chat/call on Snapchat
 
  Least people had an idea that Snapchat offers a sleek video calling feature as well. So, we are bringing you the steps as how to video call someone using Snapchat without any trouble. Let’s see how you can enjoy communicating face to face from your respective places–
@@ -303,6 +264,9 @@ Follow @Ollie Mattison
 
  In this step, you will start calling your friend. For this, look for the video recorder icon on the next screen and tap on it to place the call. It should start ringing ASAP by sending them a chat request.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ![snapchat press](https://images.wondershare.com/filmora/article-images/snapchat-press.JPG)
 
 #### Step 3: Wait for answering
@@ -333,6 +297,115 @@ Follow @Ollie Mattison
 
  You are up to surprise your BFF with cute and funny stickers during the Snapchat video chat? Why not! On your screen, tap the ‘Smiley’ tab and select the stickers, they will be included in your video chat and both of you can view them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![snapchat add sticker](https://images.wondershare.com/filmora/article-images/snapchat-add-sticker.JPG)
+
+#### 3 Close the call
+
+ Well! Now that you guys ran out of topics for the day and want to end the call. It is very easy to close a Snapchat call. You just need to exit the video chat by going back to the recent conversations or switch to another app.
+
+#### 4 Make sure to upload the latest version
+
+ It is advised that you update to the latest version of Snapchat to get the best out of this app.
+
+#### 5 Send video message
+
+ When your friends are not online in Snapchat or haven’t enabled notifications for Snapchat video calls, you can still leave video messages for them. To share a video message, tap and hold the video recorder button in the chat, and record something up to 10 seconds, then send it. Your friends will get the video message when they open that message in their Snapchat.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![snapchat send video call](https://images.wondershare.com/filmora/article-images/snapchat-send-video-call.JPG)
+
+## Final Verdict
+
+ Moving towards the end, we hope you have got a broad idea about how to use Snapchat’s video call feature, and add cute and funny stickers as well to pep up the chat. So, what are you waiting for? Grab your mobile phone and start Snapchat video calling, we are sure that it will be so much fun than just sharing one sided snaps to each other. Thanks for going through the post. Please share your first experience with video calling with the Snapchat.
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Most people are not aware about **Snapchat video chat** facilities, though it’s been around since a long time. Sounds surprising though! Even few of our acquaintances approached us to know about **Snapchat video call**.
+
+ Well! We decided to decipher the fact and reveal the video calling feature of Snapchat, to make your life simpler. Your favorite social networking app is not restricted to sharing photos, videos, and stories, they can make you talk and see your family and friends anytime.
+
+ Here, in this article we are going to explain you the 3 steps to make a video call using Snapchat app.
+
+* [**Part1: How to video chat/call on Snapchat**](#part1)
+* [**Part2: Tips for using video chat/call**](#part2)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 1: How to video chat/call on Snapchat
+
+ Least people had an idea that Snapchat offers a sleek video calling feature as well. So, we are bringing you the steps as how to video call someone using Snapchat without any trouble. Let’s see how you can enjoy communicating face to face from your respective places–
+
+#### Step 1: Swipe right to start a video chat
+
+ First of all, launch the latest version of Snapchat on your mobile and then swipe right on the camera to get the ‘Friends’ list. You can also tap on the ‘Friends’ tab found at the bottom left corner of the screen. Now, find the contact you want to make a Snapchat video call with, and tap or right swipe on it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![snapchat call](https://images.wondershare.com/filmora/article-images/snapchat-call.JPG)
+
+#### Step 2: Press video camera icon
+
+ In this step, you will start calling your friend. For this, look for the video recorder icon on the next screen and tap on it to place the call. It should start ringing ASAP by sending them a chat request.
+
+![snapchat press](https://images.wondershare.com/filmora/article-images/snapchat-press.JPG)
+
+#### Step 3: Wait for answering
+
+ Their phone will start ringing if they have enabled Snapchat notifications. Enabling notification will also let them know that you’re calling even if they are not using the app that time. Or else, they can only get the call, while using Snapchat.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
+![snapchat wait call](https://images.wondershare.com/filmora/article-images/snapchat-wait-call.JPG)
+
+ There are 3 options to respond to a call.
+
+1. If they click on ‘Watch’ option, they can see you, but you aren’t allowed for so.
+2. If they tap ‘Join’ option, it means both of you can see and talk to each other. In case they select ‘Ignore’ option, you will get a busy message.
+3. If you tap the green camera icon the video becomes one way, where only you can see them, but they won’t see you.
+
+ Note: By swiping the screen down, you can minimize the Snapchat video call.
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: Tips for using video chat/call
+
+ Now that you are well aware of Snapchat video chat, how about some extra tips to add more fun to your chat sessions? So, get creative and enjoy the fun
+
+#### 1 Double check to switch
+
+ When you want to show your friend what your pet is up to, or that blooming rose on your balcony, you will definitely need to roam around and adjust the front camera. But, you can show him/her without switching your place. Just double-tap the screen of your Snapchat video chat and your friend can see everything. Switching or swapping between your cameras during a Snapchat video call is that easy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![snapchat double click](https://images.wondershare.com/filmora/article-images/snapchat-video-call.JPG)
+
+#### 2 Add stickers
+
+ You are up to surprise your BFF with cute and funny stickers during the Snapchat video chat? Why not! On your screen, tap the ‘Smiley’ tab and select the stickers, they will be included in your video chat and both of you can view them.
+
 ![snapchat add sticker](https://images.wondershare.com/filmora/article-images/snapchat-add-sticker.JPG)
 
 #### 3 Close the call
@@ -353,6 +426,9 @@ Follow @Ollie Mattison
 
  Moving towards the end, we hope you have got a broad idea about how to use Snapchat’s video call feature, and add cute and funny stickers as well to pep up the chat. So, what are you waiting for? Grab your mobile phone and start Snapchat video calling, we are sure that it will be so much fun than just sharing one sided snaps to each other. Thanks for going through the post. Please share your first experience with video calling with the Snapchat.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -373,12 +449,18 @@ Follow @Ollie Mattison
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conquered Creativity: Unleashing Photo Potential on Snapchat
 
 Since its inception in 2011, Snapchat has steadily evolved into one of the best social media platforms over time, with over 347 million daily active users today. And it's not just millennials who are using the app - Snapchat is popular with people of all ages.
 
 But have you ever wondered and thought about how people get those amazing images on Snapchat? Well, wonder no more! In this article, we're going to show you **how to edit photos on Snapchat** so that you can make them look even better!
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![snapchat app](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-app.jpg)
 
 Therefore, without any further delay, let's dive in!
@@ -407,6 +489,9 @@ A Quick Guide:
 8. [How To Crop Images On Snapchat](#part2-8)
 9. [How to Set a Time Limit](#part2-9)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ### How to Add Pictures from Your Camera Roll to Snapchat
 
 Here's a quick rundown of how to add pictures from your camera roll to Snapchat:
@@ -417,10 +502,16 @@ Step1 Open the **Snapchat app** on your device and tap the **"Two Overlayed Pict
 
 Step2 This will take you to **Memories.** Click the **Camera Roll** tab, scroll the pictures to add the one you want, and tap it.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![snapchat camera roll](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-camera-roll.jpg)
 
 Step3 Now, you can send the picture to your friends, add it to your story, or edit it to create a masterpiece.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### How To Edit Photos On Snapchat
 
 Now that you've added your picture from the Camera roll, follow the steps below to edit it using the Snapchat image editing tools:
@@ -445,8 +536,14 @@ Step2 Since the stickers are placed in different categories, including recently 
 
 Step3 Next, swipe up and down to find the sticker you want and tap it to add to your picture. To know more about Snapchat filters, read "[Top 20 Snapchat Filters & Lenses to Make Your Snaps Special](https://tools.techidaily.com/wondershare/filmora/download/)."
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![snapchat stickers library](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-stickers-library.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Use the Snapchat Text Tool
 
 Want to add a caption or something interesting to your picture? With the following steps, you can easily add any text to your photos while editing them on Snapchat:
@@ -503,6 +600,9 @@ Step2 Use your fingers to adjust the picture size and remove unwanted areas. You
 
 Step3 Finally, tap the **blue Check** icon to save your cropped image.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![snapchat crop tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-crop-tool.jpg)
 
 If you want to learn how to zoom your videos or images on Snapchat, [click here to find out!](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -552,6 +652,9 @@ Step2 Tap **"Save as Copy,"** and your picture will be saved to your gallery.
 
 Step3 Alternatively, you can tap the **Export** option and select **"Download"** to save the image to your phone's Gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## A Bonus Tips: How to Save Snapchat Videos with Apps on Android and Mac
 
 Do you want to record your Snapchat stories like a movie or slideshow on Android or Mac? Well, you can save your Snapchat videos using apps or software programs.
@@ -574,6 +677,9 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
 
 For Android, download the AZ video recorder - an app that does not require any root access and lets you record your screen with a high resolution and frame rate. To learn more, [click here!](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've explained **how to edit photos on Snapchat** with simple and easy-to-follow instructions. We've discussed adding stickers, text, URL, time limit, theme, and cropping the image to remove unwanted sections from it.
@@ -595,3 +701,63 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-ensuring-long-term-accessibility-transferring-photos-from-snapchat/"><u>[New] 2024 Approved  Ensuring Long-Term Accessibility  Transferring Photos From Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-finding-out-if-someone-hides-you-on-snapchat/"><u>[New] 2024 Approved  Finding Out if Someone Hides You on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-mac-to-snapchat-creating-compact-shareable-content/"><u>[New] 2024 Approved  Mac to Snapchat  Creating Compact, Shareable Content</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-quick-snapback-to-loss-prevention/"><u>[New] 2024 Approved  Quick Snapback to Loss Prevention</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-simplified-guide-crafting-and-altering-multisnap-stories/"><u>[New] 2024 Approved  Simplified Guide  Crafting & Altering Multisnap Stories</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-twitchstars-engaging-on-snapchat/"><u>[New] 2024 Approved  Twitchstars  Engaging on Snapchat</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-enhancing-business-communication-with-professional-skype-recordings/"><u>[New] Enhancing Business Communication with Professional Skype Recordings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-follower-deletion-identification/"><u>[New] Instagram Follower Deletion Identification</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-depth-analysis-best-valheim-seeds-for-growth-for-2024/"><u>[Updated] In-Depth Analysis  Best Valheim Seeds for Growth for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-2023s-top-8-video-sensations-a-facebook-deep-dive/"><u>2024 Approved  2023'S Top 8 Video Sensations  A Facebook Deep Dive</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-from-in-the-moment-to-lasting-images-how-to-save-from-snapchat/"><u>2024 Approved  From In-the-Moment to Lasting Images  How to Save From Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-identifying-hidden-account-activities/"><u>2024 Approved  Identifying Hidden Account Activities</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-incorporating-real-time-photos-into-team-conversations/"><u>2024 Approved  Incorporating Real-Time Photos Into Team Conversations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-instant-upload-share-pics-directly-from-your-camera-roll/"><u>2024 Approved  Instant Upload  Share Pics Directly From Your Camera Roll</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-legalities-in-sharing-instagram-melodies/"><u>2024 Approved  Legalities in Sharing Instagram Melodies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-proactive-preservation-ios-photos-to-your-snap-story/"><u>2024 Approved  Proactive Preservation  IOS Photos to Your Snap Story</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-quick-reinstatement-vanished-visuals/"><u>2024 Approved  Quick Reinstatement  Vanished Visuals</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-quick-start-to-engaging-in-face-to-face-conversations-on-snapchat/"><u>2024 Approved  Quick Start to Engaging in Face-to-Face Conversations on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-snapchats-artistry-a-compreayer-of-the-ultimate-boomerang-method/"><u>2024 Approved  Snapchat's Artistry  A Compreayer of the Ultimate Boomerang Method</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-step-by-step-tutorial-engaging-in-a-call-on-snapchat/"><u>2024 Approved  Step-By-Step Tutorial  Engaging in a Call on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-new-era-of-social-media-a-side-by-side-comparison-between-tiktok-and-snap/"><u>2024 Approved  The New Era of Social Media  A Side-By-Side Comparison Between TikTok and Snap</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-guide-to-pacing-your-videos-on-snapchat/"><u>2024 Approved  The Ultimate Guide to Pacing Your Videos on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-top-trending-snapchat-augmentations-for-your-photos/"><u>2024 Approved  Top Trending Snapchat Augmentations for Your Photos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-unlocking-potential-snapchat-insights-for-companies/"><u>2024 Approved  Unlocking Potential  Snapchat Insights for Companies</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-magix-samplitude-is-it-really-the-best-music-production-software/"><u>2024 Approved MAGIX Samplitude Is It Really The Best Music Production Software?</u></a></li>
+<li><a href="https://win11.techidaily.com/avoiding-the-hot-zone-tips-to-prevent-pc-overheating-during-games/"><u>Avoiding the Hot Zone: Tips to Prevent PC Overheating During Games</u></a></li>
+<li><a href="https://fox-that.techidaily.com/cant-wirelessly-charge-your-iphone-try-these-7-remedies-now/"><u>Can't Wirelessly Charge Your iPhone? Try These 7 Remedies Now</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/discovering-japanese-style-snap-creativity-on-snapchat-for-2024/"><u>Discovering Japanese-Style Snap Creativity on Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/essential-skills-for-efficient-teamsnap-photo-taking-for-2024/"><u>Essential Skills for Efficient TeamSnap Photo Taking for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-iphone-se-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass iPhone SE Passcode Easily Video Inside</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-xiaomi-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Xiaomi</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-xr-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone XR to other iPhone 13 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oneplus-nord-n30-5g-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On OnePlus Nord N30 5G</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-oppo-reno-8t-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Oppo Reno 8T 5G FRP Bypass</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-efficient-backup-of-camera-roll-to-share-via-snapchat/"><u>In 2024, Efficient Backup of Camera Roll to Share via Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-from-instant-sharing-to-long-term-storage-snapshots-journey/"><u>In 2024, From Instant Sharing to Long-Term Storage  Snapshots' Journey</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-gain-recovery-of-personal-snapshots/"><u>In 2024, Gain Recovery of Personal Snapshots</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-apple-iphone-12-pro-max-location-on-skout-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Apple iPhone 12 Pro Max Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-iphone-6s-plus-drfone-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-10t-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Realme 10T 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-honor-90-pro-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Honor 90 Pro online without jailbreak</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-optimize-and-protect-transferring-your-camera-roll-efficiently-to-snapchat/"><u>In 2024, Optimize and Protect  Transferring Your Camera Roll Efficiently to Snapchat</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Nokia 150 (2023)? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-quick-start-video-chatting-technique-for-snapchat-pros/"><u>In 2024, Quick-Start Video Chatting Technique for Snapchat Pros</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-revolutionize-your-snapchat-with-smart-boomerangs/"><u>In 2024, Revolutionize Your Snapchat with Smart Boomerangs</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-seamless-transition-to-using-a-virtual-whiteboard-on-zoom-platforms/"><u>In 2024, Seamless Transition to Using a Virtual Whiteboard on Zoom Platforms</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-unique-identity-on-snapchat-inspiration-from-more-than-120-private-snap-ideas/"><u>In 2024, Unique Identity on Snapchat  Inspiration From More Than 120 Private Snap Ideas</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-unleash-your-creativity-on-mobile-with-expert-video-editors/"><u>In 2024, Unleash Your Creativity on Mobile with Expert Video Editors</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-utilizing-snap-camera-feature-on-microsoft-teams/"><u>In 2024, Utilizing Snap Camera Feature on Microsoft Teams</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/infusing-fun-in-conversations-step-by-step-for-snapchat-gifs-for-2024/"><u>Infusing Fun in Conversations  Step-by-Step for Snapchat Gifs for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagrams-secret-weapon-tailoring-photos-to-standout-highlights-for-2024/"><u>Instagram's Secret Weapon  Tailoring Photos to Standout Highlights for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/live-broadcast-showdown-obs-or-streamlabs-which-is-superior-for-2024/"><u>Live Broadcast Showdown  OBS or Streamlabs – Which Is Superior for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/omni-angle-mounting-mechanisms/"><u>Omni-Angle Mounting Mechanisms</u></a></li>
+<li><a href="https://video-capture.techidaily.com/screencapture-evaluation-interface/"><u>ScreenCapture Evaluation Interface</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/secure-photos-the-best-apps-decoded/"><u>Secure Photos  The Best Apps Decoded</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/techniques-for-blurring-and-excising-picture-borders-for-2024/"><u>Techniques for Blurring and Excising Picture Borders for 2024</u></a></li>
+</ul></div>
