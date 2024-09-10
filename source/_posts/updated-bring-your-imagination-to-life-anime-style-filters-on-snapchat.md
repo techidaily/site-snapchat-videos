@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bring Your Imagination to Life  Anime Style Filters on Snapchat\""
-date: 2024-09-04T03:15:05.958Z
-updated: 2024-09-05T03:15:05.958Z
+date: 2024-09-09T16:59:49.029Z
+updated: 2024-09-10T16:59:49.029Z
 tags:
   - ai video
   - ai snapchat
@@ -21,6 +21,12 @@ thumbnail: https://thmb.techidaily.com/d72c9b0ad235ae2e33438a2833486adc17771826c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -29,6 +35,12 @@ thumbnail: https://thmb.techidaily.com/d72c9b0ad235ae2e33438a2833486adc17771826c
 
 Filters and effects are not new when it comes to social media services, and almost all of them have their own versions, which you can use. Snapchat is here with a new lens, which is becoming immensely popular. If you have been trying to use the **Snapchat anime** filter and don't know how to go about it, you have come to the right place because this article will talk about how to get this filter and how to use it. Keep reading!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What is Anime Filter on Snapchat?
 
 Out of the many AR lenses from Snapchat, the latest one is the anime lens. It's a filter that will morph a person's photo or video into an anime character and will customize the anime face based on the person's facial features. So, rather than simply applying a generic image on top of your face, Snapchat makes sure that the anime image looks similar to your actual image. And as a result, each person's anime face turns out to be different.
@@ -37,21 +49,21 @@ Since the hashtag #animefilter is trending, you can also apply the anime filter 
 
 What stands out is that after the **anime** **filter** **of** **Snapchat** was released, it has been used over 3 billion times. Snapchat has confirmed this statistic in its Third Quarter 2020 Financial report, and they even said that they already knew it would be a massive hit.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Get the Anime Filter on Snapchat?
 
 Now that you know how popular the **Snapchat anime filter** is. It's worth knowing how to get it. Although this filter is available on Snapchat, many users are facing issues finding it. This section will show you two easy ways to get this filter. You can use one or both methods and start using the filter to show the world how you will look like an anime character. Here are the two ways:
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Method 1: Get the Anime Face Filter on Snapchat via Link
 
@@ -62,10 +74,16 @@ Now that you know how popular the **Snapchat anime filter** is. It's worth knowi
 ![Unlock the snapchat anime filter](https://images.wondershare.com/filmora/article-images/unlock-anime-filter-for-48-hours.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 3:**  By clicking on the purple button, your **Snapchat anime** filter will be available for use for 48 hours.
 
@@ -73,18 +91,6 @@ Here's a pro tip, if you want to continue using this filter, once the 48 hours a
 
 If the pop-up says, “nothing to see here”, which means you have the filter already. In this case, you can go to Snapchat and click the filter accordingly.
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Get the Anime Style Filter via Explore on Snapchat
 
 If you don’t want to click any unknown links, you can explore the anime filter by searching on Snapchat.
@@ -98,10 +104,10 @@ If you don’t want to click any unknown links, you can explore the anime filter
 ![Explore the snapchat anime filter](https://images.wondershare.com/filmora/article-images/explore-anime-style-filter-snapchat.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 4:**  You can now search for Anime Styles. There are several anime filters available, just make sure that the creator of the filter is Snapchat.
 
@@ -113,18 +119,18 @@ If you don’t want to click any unknown links, you can explore the anime filter
 
 Since Snapchat keeps coming up with attractive filters, you may wonder how you can get more filters to keep using them. Well, there are a few tricks that you can try. We will explain these tricks in detail, so make sure to follow them correctly.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Trick 1: Turn on Snapchat Geofilters
 
 Before you try using Snapchat geofilters, you will first have to permit Snapchat to access your location. Whether you are using iOS or Android, enable location, and you will start seeing geofilters and all the other filters that you have saved.
 
 Don't expect a plethora of filters to suddenly turn up. For example, when you apply a geofilter, you will see that it adds an illustration and the place name to your Snap. So, the more you explore and go out, the more filters you will start seeing.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Trick 2: Check Online Resources on Lens Studio and Lenslist
 
 You can also explore two filter libraries, which are Lens Studio and Lenslist. These are repositories of AR content. These two libraries have many attractive filters. All you need to do is scan the Snapcode available in the filters and unlock them. Both of them will have duplicate filters as well, though. But dig a bit deeper, and you will have enough codes of filters to keep using them every day. You will find these codes in your profile once you add them.
@@ -141,20 +147,26 @@ As we shared, Snapchat will only morph your face into an anime character. But if
 
 [![Download Filmora  Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora   Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+**Step 2:**  Now, import media files and load the video that you want to convert into a cartoon or anime to the media library, and then add that video to the timeline.
+
+![add anime filter to video in Filmora](https://images.wondershare.com/filmora/article-images/import-video-to-cartoon-anime.jpg)
+
 <!-- affiliate ads begin -->
 <a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
   <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
 <img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-**Step 2:**  Now, import media files and load the video that you want to convert into a cartoon or anime to the media library, and then add that video to the timeline.
-
-![add anime filter to video in Filmora](https://images.wondershare.com/filmora/article-images/import-video-to-cartoon-anime.jpg)
-
 **Step 3:**  Go to the Effects option, and type sketch in the search effects bar, which will be on the top of the screen.
 
 ![add anime filter to video in Filmora](https://images.wondershare.com/filmora/article-images/find-sketch-effect-anime-filter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 4:**  Currently, Filmora provides sketch and color sketch effects. Try each one of them to see which one works the best. If you want to add the filter to the entire video, just drag and drop the filter to the video, and it's done.
 
 ![add sketch filter to video in Filmora](https://images.wondershare.com/filmora/article-images/add-sketch-effect-video.jpg)
@@ -166,10 +178,10 @@ Note: If you want to add the sketch effect to the person only, you can use the H
 ![add sketch filter and ai portrait to video in Filmora](https://images.wondershare.com/filmora/article-images/add-human-segmentation-anime-filter.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Check the video tutorial below to explore more usage of the AI Portrait add-on.
 
@@ -177,18 +189,6 @@ Check the video tutorial below to explore more usage of the AI Portrait add-on.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
