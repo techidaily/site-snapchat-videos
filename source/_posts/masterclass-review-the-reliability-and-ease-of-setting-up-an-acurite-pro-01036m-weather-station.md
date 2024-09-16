@@ -1,7 +1,7 @@
 ---
 title: "Masterclass Review: The Reliability and Ease of Setting Up an AcuRite Pro 01036M Weather Station"
-date: 2024-09-09T16:59:51.209Z
-updated: 2024-09-10T16:59:51.209Z
+date: 2024-09-08T19:22:27.122Z
+updated: 2024-09-15T18:28:26.297Z
 categories:
   - BestProducts
 description: "This Article Describes Masterclass Review: The Reliability and Ease of Setting Up an AcuRite Pro 01036M Weather Station"
@@ -13,22 +13,10 @@ thumbnail: https://thmb.techidaily.com/a770835b076eb6b9f15ef9eaa24a0d7865dfb16a5
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Gannon Burgett
 
  What We Like
@@ -53,18 +41,6 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Gannon Burgett
 
 [View On Amazon $91](https://www.amazon.com/dp/B00YP823NA?tag=lifewire-onsite-prod-20&ascsubtag=4589398%7Cn970af9c77c9d48e5afeadf350862a65723%7CB00YP823NA)
@@ -87,12 +63,6 @@ Lifewire / Gannon Burgett
 
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
@@ -109,6 +79,13 @@ Lifewire / Gannon Burgett
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
@@ -121,18 +98,6 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
  One nice bonus is the power bank can be charged while also giving a charge to a laptop or mobile device, adding an extra element of convenience.
@@ -146,11 +111,18 @@ Lifewire / Gannon Burgett
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
@@ -172,11 +144,12 @@ Lifewire / Gannon Burgett
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
@@ -198,14 +171,11 @@ Lifewire / Gannon Burgett
 * Warranty  One year
 * Compatibility  Android, iOS
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,39 +186,21 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-from-novice-to-pro-simplified-youtube-live-streaming-with-obs/"><u>[New] From Novice to Pro  Simplified YouTube Live Streaming with OBS</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-harmonic-hits-on-snapchat-videos/"><u>[New] In 2024, Harmonic Hits on Snapchat Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-hidden-shotsnappers-advanced-techniques-for-invisible-image-capturing-on-snapchat/"><u>[New] In 2024, Hidden ShotSnappers  Advanced Techniques for Invisible Image Capturing on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-keep-the-click-going-tips-for-automatically-backing-up-snapshots/"><u>[New] In 2024, Keep the Click Going  Tips for Automatically Backing Up Snapshots</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-photo-perfection-how-to-automatically-save-snaps-from-snapchat/"><u>[New] In 2024, Photo Perfection  How to Automatically Save Snaps From Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-unleash-creativity-transformative-techniques-with-snapchat-photos/"><u>[New] In 2024, Unleash Creativity  Transformative Techniques with Snapchat Photos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-infuse-your-snap-with-japanese-pop-culture-the-anime-filter-tutorial-for-2024/"><u>[New] Infuse Your Snap with Japanese Pop Culture  The Anime Filter Tutorial for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-quick-tips-for-crafting-and-perfecting-multisnapping-snapchat-stories-for-2024/"><u>[New] Quick Tips for Crafting and Perfecting Multisnapping Snapchat Stories for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-spotting-no-replay-in-your-chat-history-for-2024/"><u>[New] Spotting No Replay in Your Chat History for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-steps-to-build-a-hidden-snapstory-collection-for-2024/"><u>[New] Steps to Build a Hidden Snapstory Collection for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/solved-samsung-blu-ray-player-not-working/"><u>[Solved] Samsung Blu Ray Player Not Working</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-innovating-in-the-snapchat-space-trendsetting-ad-design-principles/"><u>[Updated] 2024 Approved  Innovating in the Snapchat Space  Trendsetting Ad Design Principles</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-tactics-to-triumph-secrets-of-successful-social-media-videos/"><u>[Updated] 2024 Approved  Tactics to Triumph  Secrets of Successful Social Media Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-visual-vibes-trending-snaps-with-bold-filters-and-lenses/"><u>[Updated] 2024 Approved  Visual Vibes  Trending Snaps with Bold Filters & Lenses</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-convert-with-precision-10-leading-tools-from-flv-to-youtube-platforms-for-2024/"><u>[Updated] Convert with Precision  10 Leading Tools From Flv to YouTube Platforms for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-facebook-live-the-world-in-minutes/"><u>[Updated] Facebook Live  The World in Minutes</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-effortless-artistry-convert-photographs-to-cartoon-characters/"><u>[Updated] In 2024, Effortless Artistry  Convert Photographs to Cartoon Characters</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-maximizing-memory-storing-snapshots-in-photo-albums-from-snapchat/"><u>[Updated] In 2024, Maximizing Memory  Storing Snapshots in Photo Albums From Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-melodious-memories-capturing-songs-in-your-snaps/"><u>[Updated] In 2024, Melodious Memories  Capturing Songs in Your Snaps</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-retain-snapchat-moments-android-and-mac-solutions/"><u>[Updated] In 2024, Retain Snapchat Moments  Android and Mac Solutions</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-step-by-step-tutorial-engaging-in-a-call-on-snapchat/"><u>[Updated] In 2024, Step-By-Step Tutorial  Engaging in a Call on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-streamlined-recording-procedures-for-snapchat-ready-videos/"><u>[Updated] In 2024, Streamlined Recording Procedures for Snapchat-Ready Videos</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-in-2024-the-direct-route-streaming-from-spotify-in-discord-platforms/"><u>[Updated] In 2024, The Direct Route  Streaming From Spotify in Discord Platforms</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-unlocking-private-snapshares-a-comprehensive-tutorial/"><u>[Updated] In 2024, Unlocking Private Snapshares  A Comprehensive Tutorial</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-streamline-your-meetings-the-use-of-snap-camera-on-teams-for-2024/"><u>[Updated] Streamline Your Meetings  The Use of Snap Camera on Teams for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-for-transforming-fragments-into-lasting-memories-for-2024/"><u>[Updated] The Ultimate Guide for Transforming Fragments Into Lasting Memories for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-transform-your-snaps-with-cutting-edge-filter-techniques-for-2024/"><u>[Updated] Transform Your Snaps with Cutting-Edge Filter Techniques for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-best-gimbals-matched-for-high-res-dslrs/"><u>2024 Approved  Best Gimbals Matched for High-Res DSLRs</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/efficient-methods-for-video-to-dvd-conversion-in-macos/"><u>Efficient Methods for Video-to-DVD Conversion in MacOS</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/optimal-communication-with-9-advantages-in-chatgptplus/"><u>Optimal Communication with 9 Advantages in ChatGPT+</u></a></li>
-<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-honor-play-8t-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Honor Play 8T</u></a></li>
-<li><a href="https://facebook.techidaily.com/revise-your-facebook-age-and-birthday-today/"><u>Revise Your Facebook Age and Birthday Today</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/seamless-sound-dimming-techniques-for-garageband/"><u>Seamless Sound Dimming Techniques for Garageband</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-create-jaw-dropping-slow-mo-videos-with-these-top-10-editors/"><u>Updated Create Jaw-Dropping Slow Mo Videos with These Top 10 Editors</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-effortless-guide-to-exporting-and-archiving-snapshot-files/"><u>[New] Effortless Guide to Exporting and Archiving SnapShot Files</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-ensuring-quality-export-of-camera-images-for-snapchat-sharing/"><u>[New] In 2024, Ensuring Quality Export of Camera Images for Snapchat Sharing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-regaining-exclusive-snap-privacy/"><u>[New] Regaining Exclusive Snap Privacy</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-elevating-selfies-and-pics-on-snapchat-edit-like-a-pro-for-2024/"><u>[Updated] Elevating Selfies and Pics on Snapchat – Edit Like a Pro for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-oneplus-11r-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For OnePlus 11R by Name | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/capture-and-edit-like-a-pro-with-these-8-top-montage-apps/"><u>Capture and Edit Like a Pro with These 8 Top Montage Apps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-itel-p55-5g-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Itel P55 5G?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/lost-video-playback-sony-a6400-problems-explored/"><u>Lost Video Playback Sony A6400 Problems Explored</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/navigating-the-nintendo-3ds-network-setup-process-with-ease/"><u>Navigating the Nintendo 3DS Network Setup Process with Ease</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-steps-to-resolve-speakers-failure-on-windows-11-pc/"><u>Solution Steps to Resolve 'Speaker's Failure on Windows 11 PC'</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/strategies-for-retrieving-private-chat-photos-for-2024/"><u>Strategies for Retrieving Private Chat Photos for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/techniques-to-maintain-high-video-standards-post-export/"><u>Techniques to Maintain High Video Standards Post-Export</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-complete-guide-for-snapchats-friendly-pins-for-2024/"><u>The Complete Guide for Snapchat's Friendly Pins for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transforming-gifs-to-stickers-comprehensive-instruction-for-messaging-apps-for-2024/"><u>Transforming GIFs to Stickers Comprehensive Instruction for Messaging Apps for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/triumph-over-win11-blue-screen-with-these-top-11-strategies/"><u>Triumph Over Win11 Blue Screen with These Top 11 Strategies</u></a></li>
 </ul></div>
+
