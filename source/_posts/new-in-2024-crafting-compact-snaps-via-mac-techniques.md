@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Crafting Compact Snaps via Mac Techniques"
-date: 2024-09-09T19:48:14.156Z
-updated: 2024-09-15T19:38:31.657Z
+date: 2024-09-15T17:17:48.965Z
+updated: 2024-09-20T17:24:41.480Z
 tags:
   - ai video
   - ai snapchat
@@ -82,29 +82,29 @@ You can use multiple methods to change the aspect ratio of your Snapchat video o
 
 ![](https://images.wondershare.com/filmora/Mac-articles/aspect-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ● Method 2 - The second method you can use is present under the Project Settings. You can also lock the aspect ratio using the features available here.
 
 ![](https://images.wondershare.com/filmora/Mac-articles/project-setting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![project setting next](https://images.wondershare.com/filmora/Mac-articles/project-setting-next.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ● Method 3 - The third method allows you to change the aspect ratio manually during the video editing process. You need to right-click on the timeline and select the 'Crop and Zoom' option. You will see a pop-up window where all the popular options will be available to you. You can choose either of them or select an aspect ratio manually.
 
 ![crop zoom](https://images.wondershare.com/filmora/Mac-articles/crop-zoom.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![crop zoom next](https://images.wondershare.com/filmora/Mac-articles/crop-zoom-next.jpg)
 
@@ -122,6 +122,13 @@ Using the 'Import' menu, import your media files, or simply drag and drop them f
 
 ![](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/1.index-introduction.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2. Cropping Your Video for Snapchat
 
 Here you can use the 'Crop and Zoom' button from the Timeline by right-clicking on it, so you can only focus on the aspect of the video that you want to show. This will resize the video as well.
@@ -137,20 +144,13 @@ Once you have resized your video by cropping and cutting the media file, you can
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -167,15 +167,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-elevate-your-online-interactions-master-microsoft-teams-snap-for-2024/"><u>[New] Elevate Your Online Interactions Master Microsoft Teams Snap for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-embrace-artistic-expression-incorporating-anime-into-snapchat-for-2024/"><u>[New] Embrace Artistic Expression Incorporating Anime Into Snapchat for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-learn-to-modify-snapchats-audio-effect-in-two-ways/"><u>[New] Learn to Modify Snapchat's Audio Effect in Two Ways</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-crafting-visual-stories-quick-methods-to-design-snaps/"><u>[Updated] Crafting Visual Stories Quick Methods to Design Snaps</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-photoshops-jiggle-minimizing-effective-or-overstated/"><u>2024 Approved Photoshop's Jiggle Minimizing - Effective or Overstated?</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-ultimate-checklist-streamlining-and-maximizing-screencast-quality-with-mobizen/"><u>2024 Approved Ultimate Checklist Streamlining and Maximizing Screencast Quality with Mobizen</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/capture-creativity-best-plugins-and-websites-for-photoshopping-with-frames-for-2024/"><u>Capture Creativity Best Plugins and Websites for Photoshopping with Frames for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-x6-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from X6?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-reno-11-pro-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo Reno 11 Pro 5G to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-xiaomi-redmi-note-12-proplus-5g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Xiaomi Redmi Note 12 Pro+ 5G Phones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-easy-guide-to-instagram-post-duplication/"><u>[New] In 2024, Easy Guide to Instagram Post Duplication</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-ultimate-list-of-ad-free-android-capturing-apps/"><u>[Updated] 2024 Approved Ultimate List of Ad-Free Android Capturing Apps</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-methods-to-clear-up-obs-fullscreen-troubles-for-2024/"><u>[Updated] Methods to Clear Up OBS Fullscreen Troubles for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-spotting-the-signs-of-an-snapchat-account-closure/"><u>[Updated] Spotting the Signs of an Snapchat Account Closure</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/optimizing-your-gaming-experience-keeping-sword-and-fairy-7-running-smoothly-on-windows/"><u>Optimizing Your Gaming Experience: Keeping Sword & Fairy 7 Running Smoothly on Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722763601929-reviewing-the-insignia-ns-43df710na19-fire-tv-edition-with-integrated-alexa-and-ultra-hd-without-breaking-the-bank/"><u>Reviewing the Insignia NS-43DF710NA19 - Fire TV Edition With Integrated Alexa and Ultra HD, Without Breaking The Bank.</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/reviving-old-photos-through-snapchats-memories-feature-for-2024/"><u>Reviving Old Photos Through Snapchat's Memories Feature for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unlock-the-power-of-your-camera-with-snapchats-tools-for-2024/"><u>Unlock the Power of Your Camera with Snapchat's Tools for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unveiling-the-hidden-recovering-exclusive-snap-content-for-2024/"><u>Unveiling the Hidden Recovering Exclusive Snap Content for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/what-lies-beneath-the-true-meanings-in-emoji-for-2024/"><u>What Lies Beneath The True Meanings in Emoji for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/where-innovation-meets-vr-watching-for-2024/"><u>Where Innovation Meets VR Watching for 2024</u></a></li>
 </ul></div>
 
