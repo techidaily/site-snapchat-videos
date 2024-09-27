@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unleashing Creativity  Quick Lens Building on Snapchat\""
-date: 2024-09-18T18:54:44.350Z
-updated: 2024-09-20T16:31:21.617Z
+date: 2024-09-25T07:22:36.333Z
+updated: 2024-09-27T10:25:37.766Z
 tags:
   - ai video
   - ai snapchat
@@ -55,6 +55,13 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Use Lens Studio
 
 #### 1\. Download Lens Studio
@@ -68,6 +75,13 @@ It is normal to feel a little overwhelmed the first time you try and use this pr
 There is also a Lens Studio Overview guide that you can access online, which will help you get acquainted with the program’s various features and quirks.
 
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3\. Use Studio Panels
 
@@ -90,16 +104,16 @@ The great thing about this application is that you can preview the lens before y
 
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -108,10 +122,10 @@ Creating Snapchat lenses has never been easier. Whether you are a business looki
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,5 +141,16 @@ Follow @Ollie Mattison
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-analyzing-lack-of-interaction-is-it-a-block-in-2024/"><u>[New] Analyzing Lack of Interaction Is It a Block, In 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/aintaining-creative-commons-on-youtube-for-greater-exposure/"><u>[New] Maintaining Creative Commons on YouTube for Greater Exposure</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-quick-guide-to-achieving-video-freeze-effects-on-snapchat-for-2024/"><u>[New] Quick Guide to Achieving Video Freeze Effects on Snapchat for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-funny-carousel-image-builder/"><u>[Updated] Funny Carousel Image Builder</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-detecting-silent-communication-on-snapstreak/"><u>[Updated] In 2024, Detecting Silent Communication on Snapstreak</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-vertical-or-horizontal-facebook-video-tactic-for-2024/"><u>[Updated] Vertical or Horizontal Facebook Video Tactic for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/business-communication-essentials-free-slide-show-tools/"><u>Business Communication Essentials – Free Slide Show Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enrich-your-screen-time-integrating-facebook-live-into-roku-for-2024/"><u>Enrich Your Screen Time Integrating Facebook LIVE Into Roku for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/quick-start-methods-for-producing-and-perfecting-multiple-snaps-in-snapchat-for-2024/"><u>Quick Start Methods for Producing and Perfecting Multiple Snaps in Snapchat for 2024</u></a></li>
+</ul></div>
 

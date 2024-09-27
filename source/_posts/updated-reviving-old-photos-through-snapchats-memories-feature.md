@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Reviving Old Photos Through Snapchat's Memories Feature"
-date: 2024-09-18T22:39:55.820Z
-updated: 2024-09-20T22:29:51.671Z
+date: 2024-09-22T16:47:00.370Z
+updated: 2024-09-26T21:49:52.889Z
 tags:
   - ai video
   - ai snapchat
@@ -81,6 +81,13 @@ Step1 Open your Snapchat either from your Android or iOS device. Proceed to the 
 
 ![choose picture from camera roll](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Now hit the "Arrow" button to share the selected snap. From the displayed options, tap on the "Download" icon to save the picture on your device gallery.
 
 ![download the selected photo](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-9.jpg)
@@ -94,10 +101,10 @@ Step4 On the LMK app, tap on the "Plus" icon to proceed. Afterward, tap on "Post
 ![tap on camera icon](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 After choosing the photo from the gallery, tap "Post to Snapchat." By doing so, you will be redirected to your Snapchat. From your image, remove the added stickers of the LMK app. You can drag the sticker to the trash bin icon. Afterward, tap on the "Paper Clip" icon to remove the added attachment.
@@ -108,6 +115,13 @@ Step6 Once done with removing the sticker and attached link, hit the "Send" butt
 
 ![send snap using lmk app](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 4: Casper APK for Android
 
 Casper is an excellent alternative for Snapchat users. Using this app, you can instantly add stickers and filters to the captured snaps. You can also save and forward snaps using this app to other platforms. However, Casper is not available on the Play Store. You can download the [Casper APK](https://www.apkmirror.com/apk/casper-io/casper/) from your web browser easily. Before installing it, you should alter some settings from your phone, as described below:
@@ -115,6 +129,13 @@ Casper is an excellent alternative for Snapchat users. Using this app, you can i
 Step1 Open Settings from your phone and tap "Apps." Afterward, select "Manage Apps" to proceed.
 
 ![open manage apps settings](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Once done, locate the "Google Chrome" option and turn on the toggle of "Install from unknown sources."
 
@@ -168,13 +189,6 @@ Step1 Once you have applied the filter to the photo, touch on the "Send To" butt
 
 ![tap on send to button](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 2: Using a Sticker
 
 If you want to make your camera roll picture funny and entertaining, you can add stickers to it. Through Snapchat, you can make your customized sticker of any interesting face or object. Moreover, Snapchat also offers a huge variety of built-in stickers. If you don't want to create a customized sticker, you can easily add the built-in sticker with a single tap.
@@ -195,6 +209,13 @@ Step4 Once done with adding and adjusting the sticker, hit the "Send To" button.
 
 ![hit the send to button](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 3: Using the LMK App
 
 Another efficient way to send a camera roll picture as a regular snap is by using a third-party app. LMK is a reliable social media platform that enables you to communicate with friends having similar interests. You can craft your profile by adding your interests and hobbies.
@@ -213,6 +234,13 @@ Step3 Now head to your Play Store or App Store according to the OS of your mobil
 
 ![download and install lmk app](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 On the LMK app, tap on the "Plus" icon to proceed. Afterward, tap on "Post" and hit the "Camera" icon from the bottom left side. Now choose the photo that you have recently saved in your gallery.
 
 ![tap on camera icon](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-11.jpg)
@@ -225,13 +253,6 @@ Step6 Once done with removing the sticker and attached link, hit the "Send" butt
 
 ![send snap using lmk app](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 4: Casper APK for Android
 
 Casper is an excellent alternative for Snapchat users. Using this app, you can instantly add stickers and filters to the captured snaps. You can also save and forward snaps using this app to other platforms. However, Casper is not available on the Play Store. You can download the [Casper APK](https://www.apkmirror.com/apk/casper-io/casper/) from your web browser easily. Before installing it, you should alter some settings from your phone, as described below:
@@ -243,6 +264,13 @@ Step1 Open Settings from your phone and tap "Apps." Afterward, select "Manage Ap
 Step2 Once done, locate the "Google Chrome" option and turn on the toggle of "Install from unknown sources."
 
 ![enable install unknown apps toggle](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-15.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Once you are done with installing Casper APK, you can take help from the following steps:
 
@@ -322,13 +350,6 @@ Step2 This will take you to **Memories.** Click the **Camera Roll** tab, scroll 
 
 ![snapchat camera roll](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-camera-roll.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Now, you can send the picture to your friends, add it to your story, or edit it to create a masterpiece.
 
 ### How To Edit Photos On Snapchat
@@ -338,13 +359,6 @@ Now that you've added your picture from the Camera roll, follow the steps below 
 Step1 Click the **Edit** icon at the bottom-right of the selected picture. To add text, click the **T** icons, type whatever you want, select color by dragging the icon in the **color pane** and add the **text style.**
 
 ![snapchat editing](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-editing.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 If you want to draw something on your picture, use the pencil icon. The draw function offers color panes, an emojis pen, and a color picker.
 
@@ -375,6 +389,13 @@ Step2 Type your text and use the **font gallery** to change the text style. Tap 
 Step3 Next, use the **color meter** to change the font color. Tap the **white icon** on the color bar and drag it to select your preferred color. Finally, tap the **Back** icon at the top-left of the screen to apply the text.
 
 ![snapchat text tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-text-tool.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Draw on your Images
 
@@ -510,5 +531,16 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-precision-cuts-at-a-touch-select-the-best-short-form-editors/"><u>[New] 2024 Approved Precision Cuts at a Touch Select the Best Short Form Editors</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-ultimate-blueprint-for-branding-success-on-snapchat/"><u>[New] 2024 Approved The Ultimate Blueprint for Branding Success on SnapChat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-artisans-path-to-crafting-confidential-snaps/"><u>[Updated] In 2024, The Artisan's Path to Crafting Confidential Snaps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-on-camera-charisma-a-guide-to-personal-video-content/"><u>[Updated] On-Camera Charisma A Guide to Personal Video Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-visual-voyage-your-guide-to-broadcasting-vids-with-confidence-on-facebook-for-2024/"><u>[Updated] Visual Voyage Your Guide to Broadcasting Vids with Confidence on Facebook for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-your-instagram-aesthetic-with-new-and-old-filters-for-2024/"><u>Elevate Your Instagram Aesthetic with New and Old Filters for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/enabling-screenshots-and-recordings-of-snaps-for-2024/"><u>Enabling Screenshots and Recordings of Snaps for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-rapid-routines-saving-presentations-ppt-wise/"><u>In 2024, Rapid Routines Saving Presentations PPT-Wise</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/sharing-bygone-photos-through-snapchats-memories-feature-for-2024/"><u>Sharing Bygone Photos Through Snapchat's Memories Feature for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Craft Snapchat Magic  Two Easy Lens Making Ways\""
-date: 2024-09-14T16:17:27.798Z
-updated: 2024-09-21T04:56:35.749Z
+date: 2024-09-20T04:17:42.292Z
+updated: 2024-09-26T21:03:52.395Z
 tags:
   - ai video
   - ai snapchat
@@ -55,6 +55,13 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Use Lens Studio
 
 #### 1\. Download Lens Studio
@@ -77,11 +84,31 @@ There are other tools accessible from the Resources panel. You can use these too
 
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. Preview the Snapchat Lens You Create
 
 The great thing about this application is that you can preview the lens before you send it out to your phone. When you are satisfied with the image on the preview, you can pair your phone with the application, and you will be able to send that Snapchat lens onto your phone through your Snapcode. It is that simple!
 
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
 
@@ -94,13 +121,6 @@ It is all up to your imagination. You can create the perfect Snapchat lens, whic
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
@@ -108,10 +128,10 @@ Creating Snapchat lenses has never been easier. Whether you are a business looki
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,5 +147,22 @@ Follow @Ollie Mattison
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-capturing-snapchat-on-screen-a-step-by-step-guide/"><u>[New] Capturing Snapchat on Screen A Step-by-Step Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-essential-skills-for-efficient-teamsnap-photo-taking-for-2024/"><u>[New] Essential Skills for Efficient TeamSnap Photo Taking for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-how-to-detect-if-someone-has-muted-or-blocked-you-on-snapchat/"><u>[New] How to Detect If Someone Has Muted or Blocked You on Snapchat</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-photo-extraction-techniques-for-windows-11-videos/"><u>[New] Photo Extraction Techniques for Windows 11 Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-mastering-snapchats-photo-alterations-a-step-by-step-guide/"><u>[Updated] 2024 Approved Mastering Snapchat's Photo Alterations A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-standout-cinematography-experts/"><u>[Updated] 2024 Approved Unveiling Standout Cinematography Experts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-androids-leading-downloader-choice-the-ultimate-top-10-list-of-fb-video-tools-for-2024/"><u>[Updated] Android's Leading Downloader Choice The Ultimate Top 10 List of FB Video Tools for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-streamlined-iphone-snapchat-linkage-for-photographs-and-memories/"><u>[Updated] In 2024, Streamlined iPhone-Snapchat Linkage for Photographs & Memories</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-easy-snapchat-videos-with-multiple-snaps/"><u>[Updated] Step-by-Step Easy Snapchat Videos with Multiple Snaps</u></a></li>
+<li><a href="https://win11.techidaily.com/a-step-by-step-guide-to-stopping-blued-in-windows-10/"><u>A Step-by-Step Guide to Stopping Blued in Windows 10</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-logitech-g930-microphone-cut-out-issue-a-step-by-step-guide/"><u>Fixing Logitech G930 Microphone Cut-Out Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-power-of-personal-branding-in-making-money-on-snapchat/"><u>In 2024, The Power of Personal Branding in Making Money on Snapchat</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/mac-and-pc-the-ultimate-youtube-audio-extractor-with-video-downloading-capabilities/"><u>Mac & PC: The Ultimate YouTube Audio Extractor with Video Downloading Capabilities</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-macbook-users-learn-how-to-download-and-install-videoleap-for-2024/"><u>New MacBook Users Learn How to Download and Install Videoleap for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-on-your-apple-iphone-12-pro-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled On your Apple iPhone 12 Pro? How to Fix</u></a></li>
+</ul></div>
 
