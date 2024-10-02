@@ -1,7 +1,7 @@
 ---
 title: Affordable HP AMD Laptop (15) - A Thorough Examination of Capabilities & Value
-date: 2024-09-24T05:46:54.404Z
-updated: 2024-09-26T23:41:59.478Z
+date: 2024-09-30T16:07:24.502Z
+updated: 2024-10-02T16:02:51.548Z
 categories:
   - BestProducts
 description: This Article Describes Affordable HP AMD Laptop (15) - A Thorough Examination of Capabilities & Value
@@ -37,16 +37,16 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -78,13 +78,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  It has two little flip-up stopper nubs at the bottom to hold your laptop in place, and they can be gradually adjusted to avoid having them stick up and press into your wrists while typing. Meanwhile, a pair of feet on the bottom of the pad flip out to elevate your laptop about an inch upward to improve air circulation.
@@ -96,10 +89,10 @@ Lifewire / Andrew Hayward
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Setup Process: Plug and play
@@ -107,6 +100,19 @@ Lifewire / Andrew Hayward
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -130,13 +136,6 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
@@ -144,13 +143,20 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -196,24 +202,19 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-deciphering-the-block-code-on-snapchat/"><u>[New] 2024 Approved Deciphering the Block Code on Snapchat</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-integrating-video-content-bringing-youtube-into-powerpoint/"><u>[New] Integrating Video Content Bringing YouTube Into PowerPoint</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-ultimate-list-12-engaging-pc-clicker-experiences-for-2024/"><u>[New] Ultimate List 12 Engaging PC Clicker Experiences for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-capture-conserve-continue-a-guide-to-saving-snapchat-content/"><u>[Updated] 2024 Approved Capture, Conserve, Continue A Guide to Saving Snapchat Content</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-elevate-your-creativity-2-routes-to-perfect-snap-filters/"><u>[Updated] 2024 Approved Elevate Your Creativity 2 Routes to Perfect Snap Filters</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-direct-transfer-techniques-camera-roll-images-to-snapchat/"><u>[Updated] Direct Transfer Techniques Camera Roll Images to Snapchat</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-five-iphone-podcast-services-to-streaming-for-2024/"><u>[Updated] Five iPhone Podcast Services to Streaming for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-masterful-backup-techniques-for-iphone-to-snapchat-content/"><u>[Updated] In 2024, Masterful Backup Techniques for iPhone to Snapchat Content</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-snapchat-entrepreneurs-handbook-for-profitability/"><u>[Updated] In 2024, The Snapchat Entrepreneur's Handbook for Profitability</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-snapchats-visual-language-mastering-the-art-of-gifting-with-gifs/"><u>[Updated] Snapchat's Visual Language Mastering the Art of Gifting with Gifs</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-transform-your-tone-and-texture-with-easy-snapchat-voice-tweaks/"><u>[Updated] Transform Your Tone and Texture with Easy Snapchat Voice Tweaks</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/3-exclusive-excel-tricks-not-in-the-realm-of-ai-assistants-like-chatgpt/"><u>3 Exclusive Excel Tricks Not in the Realm of AI Assistants Like ChatGPT</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-mac-mini-m1-2020-review-surpassing-competitors-in-the-arm-powered-pc-arena/"><u>Apple Mac Mini (M1, 2020) Review: Surpassing Competitors in the ARM-Powered PC Arena</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-asus-pointing-stick-drivers-fast-perfect-compatibility-with-windows-11/"><u>Download ASUS Pointing Stick Drivers Fast – Perfect Compatibility with Windows 11</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-poco-f5-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Poco F5 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/quick-quality-quilting-turning-photographic-patterns-into-cartoons/"><u>Quick Quality Quilting Turning Photographic Patterns Into Cartoons</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-best-budget-4k-television-a-detailed-look-at-hisenses-50h8f-model/"><u>The Best Budget 4K Television: A Detailed Look at Hisense's 50H8F Model</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/uncomplicated-multisnap-storytelling-on-snapchat-for-2024/"><u>Uncomplicated Multisnap Storytelling on Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snappy-solutions-maintaining-a-vigorous-snapstreak/"><u>[New] 2024 Approved Snappy Solutions Maintaining a Vigorous Snapstreak</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-dos-and-donts-the-essential-night-photography-checklist/"><u>[New] In 2024, Do's & Don'ts The Essential Night Photography Checklist</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-streamlining-meetings-with-snap-camera-on-teams/"><u>[Updated] 2024 Approved Streamlining Meetings with Snap Camera on Teams</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-from-camera-roll-to-screen-share-photos-fast-and-simple/"><u>[Updated] From Camera Roll to Screen Share Photos Fast and Simple</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-leverage-your-smartphones-capability-to-store-social-snaps/"><u>[Updated] Leverage Your Smartphone's Capability to Store Social Snaps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-prime-motorsport-experiences-quintessential-list-for-2024/"><u>[Updated] Prime Motorsport Experiences Quintessential List for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-cultivate-1000-fanbase-followers-quickly/"><u>2024 Approved Cultivate 1,000 Fanbase Followers Quickly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/acer-predator-triton-300-se-analysis-compact-design-and-unmatched-price-performance/"><u>Acer Predator Triton 300 SE Analysis: Compact Design & Unmatched Price-Performance</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-vs-google-bard-which-advanced-language-model-reigns-supreme/"><u>ChatGPT Vs. Google Bard – Which Advanced Language Model Reigns Supreme?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-efficient-storage-of-androidmac-snaps-for-longevity/"><u>In 2024, Efficient Storage of Android/Mac Snaps for Longevity</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-elite-screen-recording-the-top-5-android-capturing-apps/"><u>In 2024, Elite Screen Recording The Top 5 Android Capturing Apps</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-itel-p40plus-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Itel P40+ Phone Network-Ready</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mline-your-videos-acoustic-appeal-on-youtube/"><u>Streamline Your Video's Acoustic Appeal on YouTube</u></a></li>
 </ul></div>
 

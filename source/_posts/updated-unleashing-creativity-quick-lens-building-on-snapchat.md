@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unleashing Creativity  Quick Lens Building on Snapchat\""
-date: 2024-09-25T07:22:36.333Z
-updated: 2024-09-27T10:25:37.766Z
+date: 2024-09-29T16:02:30.886Z
+updated: 2024-10-02T16:08:03.684Z
 tags:
   - ai video
   - ai snapchat
@@ -56,10 +56,10 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Use Lens Studio
@@ -76,13 +76,6 @@ There is also a Lens Studio Overview guide that you can access online, which wil
 
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 3\. Use Studio Panels
 
 Are you ready to create your own custom Snapchat lens? It is time to head over to Studio Panels on the application. This is the area where you can add your own 2D or 3D objects, and you can visualize how they would look as a Snapchat filter. You can add, remove, resize and drag objects to specific areas of the screen.
@@ -91,11 +84,25 @@ There are other tools accessible from the Resources panel. You can use these too
 
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. Preview the Snapchat Lens You Create
 
 The great thing about this application is that you can preview the lens before you send it out to your phone. When you are satisfied with the image on the preview, you can pair your phone with the application, and you will be able to send that Snapchat lens onto your phone through your Snapcode. It is that simple!
 
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
 
@@ -105,10 +112,10 @@ The great thing about this application is that you can preview the lens before y
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
@@ -120,13 +127,6 @@ Another cool feature is how you can set the location for where the Snapchat lens
 Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -143,14 +143,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-analyzing-lack-of-interaction-is-it-a-block-in-2024/"><u>[New] Analyzing Lack of Interaction Is It a Block, In 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/aintaining-creative-commons-on-youtube-for-greater-exposure/"><u>[New] Maintaining Creative Commons on YouTube for Greater Exposure</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-quick-guide-to-achieving-video-freeze-effects-on-snapchat-for-2024/"><u>[New] Quick Guide to Achieving Video Freeze Effects on Snapchat for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-funny-carousel-image-builder/"><u>[Updated] Funny Carousel Image Builder</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-detecting-silent-communication-on-snapstreak/"><u>[Updated] In 2024, Detecting Silent Communication on Snapstreak</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-vertical-or-horizontal-facebook-video-tactic-for-2024/"><u>[Updated] Vertical or Horizontal Facebook Video Tactic for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/business-communication-essentials-free-slide-show-tools/"><u>Business Communication Essentials – Free Slide Show Tools</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/enrich-your-screen-time-integrating-facebook-live-into-roku-for-2024/"><u>Enrich Your Screen Time Integrating Facebook LIVE Into Roku for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/quick-start-methods-for-producing-and-perfecting-multiple-snaps-in-snapchat-for-2024/"><u>Quick Start Methods for Producing and Perfecting Multiple Snaps in Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-guide-to-accurate-transfer-of-camera-photos-to-social-media-apps/"><u>[New] 2024 Approved Guide to Accurate Transfer of Camera Photos to Social Media Apps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-maximizing-collaboration-with-zoom-meeting-recordings/"><u>[New] In 2024, Maximizing Collaboration with Zoom Meeting Recordings</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-breaking-down-barriers-adding-chapters-to-create-cohesive-youtube-lessons/"><u>[Updated] In 2024, Breaking Down Barriers Adding Chapters to Create Cohesive YouTube Lessons</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-top-15-snapchat-post-tips-for-max-impact/"><u>[Updated] In 2024, Top 15 Snapchat Post Tips for Max Impact</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unleashing-creativity-a-gif-sharing-blueprint-on-snapchat-for-2024/"><u>[Updated] Unleashing Creativity A Gif Sharing Blueprint on Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-master-the-art-of-snaps-15-pro-tips/"><u>2024 Approved Master the Art of Snaps 15 Pro Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubes-rivalry-the-leading-3-video-streaming-sites/"><u>2024 Approved YouTube's Rivalry The Leading 3 Video Streaming Sites</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/backup-blueprint-from-your-phone-to-your-snap-story-for-2024/"><u>Backup Blueprint From Your Phone to Your Snap Story for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-lenovo-thinkphone-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Lenovo ThinkPhone to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-infinix-zero-30-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Infinix Zero 30 5G Devices</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/innovative-writing-techniques-using-chatgpt-for-dynamic-video-game-plotting/"><u>Innovative Writing Techniques Using ChatGPT for Dynamic Video Game Plotting</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-artisans-guide-to-snapchat-filters-mastery-for-2024/"><u>The Artisan's Guide to Snapchat Filters Mastery for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/wirecast-versus-obs-which-broadcasting-tool-reigns-supreme/"><u>Wirecast Versus OBS Which Broadcasting Tool Reigns Supreme?</u></a></li>
 </ul></div>
 
