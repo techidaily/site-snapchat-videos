@@ -62,7 +62,11 @@ export default function initLocalSearch() {
   }
   
   const highlightedText = (text, keywords) => {
-    return text.replace(new RegExp(keywords.join('|'), 'gi'), (match) => `<span class="bg-yellow-300 px-1">${match}</span>`);
+    const filterKeywords = keywords.filter(v => v.trim().length > 0);
+    if (filterKeywords.length > 0) {
+      return text.replace(new RegExp(filterKeywords.join('|'), 'gi'), (match) => `<span class="bg-yellow-300 px-1">${match}</span>`);      
+    }
+    return text;
   }
   
   const onFetchData = (res, requestID='') => {
@@ -88,8 +92,11 @@ export default function initLocalSearch() {
       
       a.href = url;
       a.classList.add('search-result-title');
-      // a.textContent = title;
-      a.innerHTML = highlightedText(title, [lastSearchText]);
+      if (lastSearchText.trim().length > 1) {
+        a.innerHTML = highlightedText(title, [lastSearchText]);
+      } else {
+        a.textContent = title;
+      }
       li.appendChild(a);
       
       resultItems.push(li);                   
