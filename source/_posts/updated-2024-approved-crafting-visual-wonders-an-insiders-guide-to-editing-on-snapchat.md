@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Visual Wonders  An Insider’s Guide to Editing on Snapchat\""
-date: 2024-09-30T16:01:21.104Z
-updated: 2024-10-02T16:19:17.573Z
+date: 2024-10-06T17:58:03.658Z
+updated: 2024-10-07T19:02:10.566Z
 tags:
   - ai video
   - ai snapchat
@@ -49,6 +49,13 @@ A Quick Guide:
 8. [How To Crop Images On Snapchat](#part2-8)
 9. [How to Set a Time Limit](#part2-9)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Add Pictures from Your Camera Roll to Snapchat
 
 Here's a quick rundown of how to add pictures from your camera roll to Snapchat:
@@ -61,6 +68,13 @@ Step2 This will take you to **Memories.** Click the **Camera Roll** tab, scroll 
 
 ![snapchat camera roll](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-camera-roll.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Now, you can send the picture to your friends, add it to your story, or edit it to create a masterpiece.
 
 ### How To Edit Photos On Snapchat
@@ -70,6 +84,13 @@ Now that you've added your picture from the Camera roll, follow the steps below 
 Step1 Click the **Edit** icon at the bottom-right of the selected picture. To add text, click the **T** icons, type whatever you want, select color by dragging the icon in the **color pane** and add the **text style.**
 
 ![snapchat editing](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-editing.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 If you want to draw something on your picture, use the pencil icon. The draw function offers color panes, an emojis pen, and a color picker.
 
@@ -88,6 +109,19 @@ Step2 Since the stickers are placed in different categories, including recently 
 Step3 Next, swipe up and down to find the sticker you want and tap it to add to your picture. To know more about Snapchat filters, read "[Top 20 Snapchat Filters & Lenses to Make Your Snaps Special](https://tools.techidaily.com/wondershare/filmora/download/)."
 
 ![snapchat stickers library](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-stickers-library.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Use the Snapchat Text Tool
 
@@ -240,6 +274,13 @@ Have you ever set some of your Snapchat pictures to "My Eyes Only" and then acci
 
 But don't worry, there's a way to recover them! In this article, we'll show you how to **recover "My Eyes Only" pictures on Snapchat**. We'll also discuss how you can change or retrieve your password if you've forgotten it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1\. How To Recover Photos Deleted From "My Eyes Only" on Snapchat
 
 1. [Method 1\. Recovering The Photos Via Snapchat - For iOS and Android](#part1-1)
@@ -272,10 +313,10 @@ Step4 Log in to your **Snapchat account** once again, submit your request for da
 **Note:** Keep in mind that only the snaps saved in your memory roll will be revived by this method.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2\. Using File Browser - For Android
@@ -291,19 +332,6 @@ Step2 Head to **"Data,"** find the **"Snapchat data** or **com.snapchat.android"
 Step3 Now, find a file with the **"a .nomedia"** extension, delete it, and the data will be restored to your Snapchat account.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Note:** This method is only effective for a brief amount of time. _Therefore, to recover your deleted Snaps, you should follow this method as soon as possible after they are deleted._
 
@@ -331,13 +359,6 @@ Step4 Reset the password and tap **"Confirm"** to apply your changes.
 
 ## FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How To Change My Eyes Only Password?
 
 If you still remember the present password but want to change it, do the following steps to change the "My Eyes Only" password:
@@ -360,6 +381,13 @@ Step2 Choose the snap you want to move, tap and hold it.
 
 Step3 Select **"My Eyes Only"** to move your snap.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How Do I Set Up My Eyes Only?
 
 To set up "My Eyes Only" on Snapchat, do the following steps in sequence:
@@ -369,13 +397,6 @@ Step1 Head to the **Memories** section in Snapchat and tap the **"My Eyes Only"*
 Step2 Under the My Eyes Only tab, tap the **"Quick Setup"** option.
 
 Step3 Create a **passphrase** or **PIN** and confirm it. Now, check the box next to **"I understand that…,"** select "**Continue**," and tap the "**Finish**" option to complete the setup process.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How Do I Save Snaps To My Eyes Only By Default?
 
@@ -417,13 +438,6 @@ Step3 Now, find a file with the **"a .nomedia"** extension, delete it, and the d
 
 Apart from reading the methods we provided for your, you can also watch this video tutorial to help you recover My Eyes Only pictures quickly.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. A Bonus Tip: What If You Forget The Password Of My Eye Only
 
 If you've ever forgotten the password to your "My Eye Only" on Snapchat, don't worry; below, we've provided a few easy-to-follow instructions to help you quickly reset the password.
@@ -440,16 +454,16 @@ Step2 Tap **"Options"** at the lower right corner of the screen and select **"Fo
 
 ![recover my eye only password](https://images.wondershare.com/filmora/article-images/2022/11/recover-my-eye-only-password.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Type your Snapchat password and tap **"Next."** Accept the rules and tap **"Continue"** to proceed further.
 
 Step4 Reset the password and tap **"Confirm"** to apply your changes.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs
 
@@ -475,13 +489,6 @@ Step2 Choose the snap you want to move, tap and hold it.
 
 Step3 Select **"My Eyes Only"** to move your snap.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How Do I Set Up My Eyes Only?
 
 To set up "My Eyes Only" on Snapchat, do the following steps in sequence:
@@ -501,13 +508,6 @@ Step1 Open your Snapchat account and tap your **Profile** icon.
 Step2 Tap the **Settings** icons at the top right-hand side of the screen and head to **Memories.**
 
 Step3 Now, tap the toggle button next to **"Save to My Eyes Only By Default"** to change the settings. Your snaps will now save to the My Eyes Only section every time.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -536,22 +536,19 @@ Be sure to follow the instructions carefully, and hopefully, you'll be able to g
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-leveraging-screencastifys-advanced-features/"><u>[New] 2024 Approved Leveraging Screencastify's Advanced Features</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-top-15-trends-in-snappy-storytelling-and-sharing/"><u>[New] In 2024, Top 15 Trends in Snappy Storytelling and Sharing</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-mastering-zoom-for-podcast-recordings-a-step-by-step-guide/"><u>[New] Mastering Zoom for Podcast Recordings A Step-by-Step Guide</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-the-art-of-crafting-perfect-boomerangs-in-snap-for-2024/"><u>[New] The Art of Crafting Perfect Boomerangs in Snap for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-essential-10-family-friendly-movies-for-summertime-bliss/"><u>[Updated] 2024 Approved Essential 10 Family-Friendly Movies for Summertime Bliss</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-stepwise-process-turning-video-clocks-backward-on-snap/"><u>[Updated] 2024 Approved Stepwise Process Turning Video Clocks Backward on Snap</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-beyond-playfulness-a-closer-look-at-snapchats-emojis-for-2024/"><u>[Updated] Beyond Playfulness A Closer Look at Snapchat's Emojis for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-explore-the-latest-trends-with-these-snapchat-ideas/"><u>[Updated] Explore the Latest Trends with These Snapchat Ideas</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-how-to-achieve-inverted-movie-time-in-a-snap/"><u>[Updated] In 2024, How to Achieve Inverted Movie Time in a Snap</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-a-guide-to-enhancing-obs-with-free-lut-downloads/"><u>2024 Approved A Guide to Enhancing OBS with Free LUT Downloads</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-conquering-snapchat-send-gifs-with-ease/"><u>2024 Approved Conquering Snapchat Send Gifs with Ease</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy A34 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-able.techidaily.com/step-by-step-guide-bypassing-drm-protection-in-adobe-digital-editions-for-pdf-and-epub-formats/"><u>Step-by-Step Guide: Bypassing DRM Protection in Adobe Digital Editions for PDF & EPUB Formats</u></a></li>
-<li><a href="https://media-tips.techidaily.com/top-5-amazing-ultra-hd-monitors-worth-exploring/"><u>Top 5 Amazing Ultra HD Monitors Worth Exploring</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/transform-your-snapchat-sound-wave-in-less-than-15-minutes/"><u>Transform Your Snapchat Sound Wave in Less Than 15 Minutes</u></a></li>
-<li><a href="https://blog-min.techidaily.com/windows-11-dvdmp4aviwmvdvd/"><u>Windows 11 DVD转换工具专用于MP4/AVI/WMV格式转换，确保数据在DVD备份中安全存储</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-top-10-effortless-steps-to-viral-tiktok-success/"><u>[New] 2024 Approved Top 10 Effortless Steps to Viral TikTok Success</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-snapchat-boomerangs-ultimate-instructions/"><u>[New] Mastering Snapchat Boomerangs Ultimate Instructions</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-social-sharing-simplified-photos-from-your-device-now/"><u>[New] Social Sharing Simplified Photos From Your Device Now</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-viewers-perspectives-on-instagram-stories-not-known/"><u>[Updated] 2024 Approved Viewers' Perspectives on Instagram Stories Not Known</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-a-streamlined-approach-simplifying-film-projects-with-movie-maker/"><u>[Updated] In 2024, A Streamlined Approach Simplifying Film Projects with Movie Maker</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-amplify-igtv-audiences-5-effective-ways-for-a-larger-following/"><u>[Updated] In 2024, Amplify IGTV Audiences 5 Effective Ways for a Larger Following</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-step-by-step-guide-to-masterful-snapchat-editing/"><u>[Updated] In 2024, Step-by-Step Guide to Masterful Snapchat Editing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-edit-photos-on-snapchat/"><u>2024 Approved How to Edit Photos on Snapchat</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/bots-versus-a-common-creative-conundrum/"><u>Bots Versus a Common Creative Conundrum</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/how-to-download-obs-studio-for-mac-for-2024/"><u>How to Download OBS Studio for Mac for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-tecno-pova-5-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Tecno Pova 5 Pro to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-ultimate-blueprint-for-branding-success-on-snapchat-for-2024/"><u>The Ultimate Blueprint for Branding Success on SnapChat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unleash-your-potential-with-these-powerful-snapchat-strategies/"><u>Unleash Your Potential with These Powerful Snapchat Strategies</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-11-users-overcome-your-spacebar-key-dysfunction-with-these-simple-steps/"><u>Windows 11 Users: Overcome Your Spacebar Key Dysfunction with These Simple Steps</u></a></li>
 </ul></div>
 

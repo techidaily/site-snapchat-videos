@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Complete Guide to Enthralling Boomers on Snapchat"
-date: 2024-09-30T16:01:39.487Z
-updated: 2024-10-02T16:04:31.082Z
+date: 2024-10-03T16:07:20.789Z
+updated: 2024-10-07T20:27:59.281Z
 tags:
   - ai video
   - ai snapchat
@@ -54,10 +54,10 @@ Apart from using the Regular Loop feature, you can use another exciting feature 
 ![select infinity loop for snap](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 3: Use Instagram to Make a Boomerang Video
@@ -90,6 +90,13 @@ Step1 To start off with this tool, make sure you download and install it properl
 
 ![create new filmorago project](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 As the video opens up in front of you, click on the "Trim" button at the bottom of the screen. Move your cursor to the point where you want to trim the video. Click on the "Trim" button in the bottom-center of the panel to cut the video across the selected point.
 
 ![trim the unnecessary video part](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-10.jpg)
@@ -118,6 +125,13 @@ Step2 As the video opens up in front of you, click on the "Trim" button at the b
 
 ![trim the unnecessary video part](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 You can select the unnecessary part of the video and simply tap on the "Delete" button on the farthest right of the panel. With the trimmed video, select it and click on the "Copy" button to make duplicates of the specific part. As you make copies of the video to loop it, you can also add effects in between the parts from the "Effect" icon.
 
 ![copy the required video part](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-11.jpg)
@@ -125,13 +139,6 @@ Step3 You can select the unnecessary part of the video and simply tap on the "De
 Step4 Once you are done with your Snapchat boomerang video, set the resolution of the output video with the provided option on the top and click on the "Export" button.
 
 ![export filmorago boomerang](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -185,6 +192,13 @@ For instance, Taco Bell created a filter for Cinco de Mayo. The filter received 
 
 ![taco bell cinco de mayo filter on snapchat](https://images.wondershare.com/filmora/article-images/2022/11/taco-bell-cinco-de-mayo-filter-on-snapchat.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Where To Start Your Snapchat Marketing Strategy?
 
 As a business owner, if you're not sure where to start with your marketing strategy, here are some tips and ideas to get you started:
@@ -213,14 +227,20 @@ Type all the relevant information, such as First Name, Last Name, username, birt
 
 ![creating snapchat account](https://images.wondershare.com/filmora/article-images/2022/11/creating-snapchat-account.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Note:** Select a username that reflects your brand.
 
@@ -243,19 +263,6 @@ Step2 Now, tap the **Settings** icons, find the **"Snapcodes"** option and tap i
 ![creating snapcodes](https://images.wondershare.com/filmora/article-images/2022/11/creating-snapcodes.jpg)
 
 Once your Snapcode is created, you can add an image or share it on other social media platforms to get more followers.
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4\. Strategies for Your Snapchat Business
 
@@ -296,6 +303,19 @@ Geofilters are location-specific AR filters that you can create on-demand for yo
 
 ![on demand geofilters](https://images.wondershare.com/filmora/article-images/2022/11/on-demand-geofilters.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Sponsored Lenses
 
 Sponsored lenses are AR filters businesses produce to interact with their users on Snapchat. Users can use these lenses to make inspiring snaps, send them to friends or have fun playing games using the gamified lenses.
@@ -309,13 +329,6 @@ For instance, Sephora created a gamified AR experience for their advertisement c
 Snapchat Discover is a feature that helps brands to publish stories on the Snapchat app. This content is designed to be consumed in short, snackable bites - perfect for the attention-deficient millennial.
 
 You can get almost 2 times more traffic on your website by having a channel on Snapchat Discover and sharing engaging content with clickable links.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Track and Measure your Marketing Results
 
@@ -389,13 +402,6 @@ A Quick Guide:
 5. [Snapchat Discover](#part4-5)
 6. [Track and Measure your Marketing Results](#part4-6)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Nail Snapchat Stories
 
 Snapchat Stories are a collection of snaps strung together to create a narrative. They can be up to 24 hours long, and are viewable an unlimited number of times within that time frame.
@@ -410,24 +416,31 @@ Here are a few tips and approaches to help you create a Snapchat story that will
 * **Use high-quality visuals:** Since Snapchat is all about visuals, use high-quality images and videos in your story.
 * **Be creative**: Use Snapchat's unique features, such as filters and augmented reality, to create a story that is truly one of a kind.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How To Advertise With Snapchat
 
 Snapchat Ads are a form of advertisement that allows businesses to reach out to Snapchat users with creative and interactive content. These ads can take the form of filters, lenses, or Geofilters and can be targeted to specific users based on their interests and location.
 
 Snapchat ads are a great way to reach a new audience and promote your business in a fun and engaging way. To learn how to create stunning and effective Snapchat ads, please read[Snapchat Ad 101](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Sponsored Geofilters
 
 Geofilters are location-specific AR filters that you can create on-demand for your business to attract more customers. These filters can cost you **$5 to $20** depending upon the area/ square feet and duration, but they will surely help you attract more customers, resulting in more revenue.
 
 ![on demand geofilters](https://images.wondershare.com/filmora/article-images/2022/11/on-demand-geofilters.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sponsored Lenses
 
@@ -442,13 +455,6 @@ For instance, Sephora created a gamified AR experience for their advertisement c
 Snapchat Discover is a feature that helps brands to publish stories on the Snapchat app. This content is designed to be consumed in short, snackable bites - perfect for the attention-deficient millennial.
 
 You can get almost 2 times more traffic on your website by having a channel on Snapchat Discover and sharing engaging content with clickable links.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Track and Measure your Marketing Results
 
@@ -504,22 +510,24 @@ When it comes to Snapchat, the opportunities for marketing are endless. However,
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-go-digital-go-social-send-snaps-instantly/"><u>[New] 2024 Approved Go Digital, Go Social Send Snaps Instantly</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-elevating-customer-engagement-with-snapkit-tools/"><u>[New] In 2024, Elevating Customer Engagement with SnapKit Tools</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-navigating-the-networking-of-photos-from-iphone-to-snapchat-for-2024/"><u>[New] Navigating the Networking of Photos From iPhone to Snapchat for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-obs-streamers-toolkit-for-captivating-sessions-for-2024/"><u>[New] OBS Streamer’s Toolkit for Captivating Sessions for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-realizing-unseen-friend-requests-for-2024/"><u>[New] Realizing Unseen Friend Requests for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-snapstreak-savvy-guidance-to-prevent-interruptions/"><u>[New] Snapstreak Savvy Guidance to Prevent Interruptions</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-capture-and-share-the-essentials-for-posting-video-in-every-direction-on-fb-for-2024/"><u>[Updated] Capture and Share The Essentials for Posting Video in Every Direction on FB for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-immediate-recovery-of-lost-snapshots/"><u>[Updated] In 2024, Immediate Recovery of Lost Snapshots</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapshot-savvy-learn-to-pin-on-snapchat/"><u>[Updated] In 2024, Snapshot Savvy Learn to Pin on Snapchat</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-unveiling-the-tricks-for-flawless-file-imports-on-windows-10/"><u>2024 Approved Unveiling the Tricks for Flawless File Imports on Windows 10</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-vivo-v29e-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Vivo V29e via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/logitech-m525-mouse-drivers-and-free-installation-software/"><u>Logitech M525 Mouse Drivers & Free Installation Software</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-fast-forward-best-gif-speed-adjustment-tools-online-ios-android/"><u>New In 2024, Fast Forward Best GIF Speed Adjustment Tools Online, iOS, Android</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-future-proof-audio-editing-platforms-top-choices/"><u>New In 2024, Future-Proof Audio Editing Platforms Top Choices</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-ai-advertising/"><u>New What Is AI Advertising?</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721267027164-revive-accidentally-erased-items-on-your-iphone-with-this-superior-mac-data-recovery-application/"><u>Revive Accidentally Erased Items on Your iPhone with This Superior Mac Data Recovery Application!</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/step-by-step-adding-snap-camera-to-teams-chats-for-2024/"><u>Step-by-Step Adding Snap Camera to Teams Chats for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-from-memory-to-moments-securely-uploading-photos-to-snapchat/"><u>[New] In 2024, From Memory to Moments Securely Uploading Photos to Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-tips-for-finding-hidden-exclusive-photos-on-snapchat/"><u>[New] In 2024, Tips for Finding Hidden, Exclusive Photos on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-conquered-creativity-unleashing-photo-potential-on-snapchat/"><u>[Updated] 2024 Approved Conquered Creativity Unleashing Photo Potential on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-one-click-video-creation-simplified-editing-of-multi-snaps/"><u>[Updated] 2024 Approved One-Click Video Creation Simplified Editing of Multi-Snaps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-kakaotalk-elites-flash-chats-on-snapchat/"><u>[Updated] KakaoTalk Elites' Flash Chats on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-navigating-the-maze-of-communication-features-on-snapchat-for-2024/"><u>[Updated] Navigating the Maze of Communication Features on Snapchat for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1-real-time-streaming-made-easy-discover-manycam-the-ultimate-virtual-camera-solution/"><u>1. Real-Time Streaming Made Easy: Discover ManyCam - The Ultimate Virtual Camera Solution!</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-dynamic-world-of-digital-gifts-a-complete-guide-to-snapchat-gifs/"><u>2024 Approved The Dynamic World of Digital Gifts A Complete Guide to Snapchat Gifs</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-guide-to-seamless-snapchat-lens-creation/"><u>2024 Approved The Ultimate Guide to Seamless Snapchat Lens Creation</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ace-job-interviews-on-skype-innovative-techniques-to-dominate-the-screen-in-202email-protected/"><u>Ace Job Interviews on Skype: Innovative Techniques to Dominate the Screen in 202([Email Protected])</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-captivating-unboxing-content-top-tips/"><u>Crafting Captivating Unboxing Content Top Tips</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-iphone-14-plus-by-drfone-ios/"><u>How to Fix when Apple Account Locked On iPhone 14 Plus?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-on-your-iphone-12-mini-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status On Your iPhone 12 mini</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/maintaining-a-continuous-snapchat-connection-for-2024/"><u>Maintaining a Continuous Snapchat Connection for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/master-the-sound-overcoming-voice-chat-glitches-in-destiny-2-gaming/"><u>Master the Sound: Overcoming Voice Chat Glitches in Destiny 2 Gaming</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-giants-of-social-media-facebook-twitter-and-instagram/"><u>Navigating the Giants of Social Media: Facebook, Twitter & Instagram</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-asus-rog-phone-8-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Asus ROG Phone 8 to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-picks-must-watch-lgbtq-series-on-netflix-in-july-2024/"><u>Top Picks: Must-Watch LGBTQ Series on Netflix in July 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On OnePlus 12 | Dr.fone</u></a></li>
 </ul></div>
 
