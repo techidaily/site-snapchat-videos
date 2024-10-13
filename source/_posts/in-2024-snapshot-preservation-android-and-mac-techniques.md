@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Snapshot Preservation  Android & Mac Techniques\""
-date: 2024-07-25T15:31:46.268Z
-updated: 2024-07-26T15:31:46.268Z
+date: 2024-10-08T16:11:57.856Z
+updated: 2024-10-13T16:17:09.547Z
 tags:
   - ai video
   - ai snapchat
@@ -44,17 +44,11 @@ thumbnail: https://thmb.techidaily.com/5d226635edaf435094da0cef0471d4f2b3210c149
 
 1. First of all, launch the Snapchat app on your mobile phone and leave it open. Go to your phone’s ‘Settings’ (Android/iPhone) and toggle on the ‘Airplane/Flight’ mode. Airplane/Flight mode disables all the wireless connections, be it network signals or internet related services for your device (Wi-Fi as well as cellular).
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![snapchat save without knowing](https://images.wondershare.com/filmora/article-images/snapchat-save-without-knowing.JPG)
 
 2. Browse the Snapchat inbox and view the desired Snap that you wish to save, and quickly take a screenshot. Make sure to be quick enough and do it before the Snap expires.
 3. Now, logout from your Snapchat account right after taking the screenshot. You need to follow the logout process according to your device specific settings. Being in ‘Airplane/Flight’ mode you can’t logout, but click the logout option anyway (this is vital!).
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![snapchat log out](https://images.wondershare.com/filmora/article-images/snapchat-log-out.JPG)
 
 4. Here, you need to close the Snapchat app on your mobile phone by swiping out the Snapchat app (up/sideways depending on Android/iPhone) from your device’s force quit screen.
@@ -62,24 +56,44 @@ thumbnail: https://thmb.techidaily.com/5d226635edaf435094da0cef0471d4f2b3210c149
 
  **Read More to Get :** [How to Screenshot on Snapchat without Them Knowing >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to save Snapchat videos on Mac
 
  After learning to take screenshots of Snaps using the ‘Airplane’ mode, how about saving Snapchat videos on your Mac computer? Yes, you can easily save Snapchat videos using your iPhone and Mac computer. The process involves recording your iPhone’s screen through your Mac as a movie and then saving it. Here is how to do it
 
 1. Take and connect your iPhone and Mac computer using a lightning cable. Make sure that they are pre-synced. Now, launch QuickTime Player on your computer and then tap ‘File’ in the finder menu, then ‘New Movie Recording’.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![snapchat quicktime](https://images.wondershare.com/filmora/article-images/snapchat-quiktime.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 2. This will make your Mac’s camera act as the primary camera/recording device. To turn the iPhone as the recording device, go to the QuickTime screen and tap the ‘downward arrow’ button adjacent to the record button. The iPhone will be available under both the Camera and Microphone section, choose it for both the options.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![snapchat record](https://images.wondershare.com/filmora/article-images/snapchat-record.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3. You’ll now notice that your iPhone’s screen has been mirrored with your Mac computer.
 4. Now, on your iPhone, go to Snapchat and browse the inbox. Subsequently, on your Mac, tap the ‘Record’ button and then start viewing the snaps on your iPhone. QuickTime will record everything from the snaps and save it on your computer.
@@ -100,6 +114,13 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  Note: When saving Snapchat videos via this method, Snapchat is unable to trace that the video or stories are being recorded. Thereby, you save the Snapchat stories without even notifying the uploader.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to save Snapchat videos to your Phone
 
  If you are wondering about saving your own Snapchat videos to your phone, then you are at the right place for a solution. It’s pretty simple, just like saving a photo.
@@ -110,9 +131,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 2. Once you are done, lift your finger from the camera and tap the ‘Save’ button from the bottom left corner of the screen.
 3. You will see the ‘Saved to memories’ message. Now, browse your Snapchat folder to locate the video.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![snapchat save memory](https://images.wondershare.com/filmora/article-images/snapchat-save-memory.JPG)
 
 4. If you forgot to save it before posting as a story, then go to the ‘Stories’ tab and click on the three vertical dots next to ‘My Story’ and select the video. Click the ‘Save’ button next to it to save Snapchat videos to your mobile.
@@ -121,9 +139,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  It is not impossible to save Snapchat videos to your Mac or Android phone. In fact, you just need to learn the right way that suits you. Be it through the apps to save Snapchat videos and stories or taking screenshots in ‘Airplane’ mode, you got to be quick and save what you like.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -132,12 +147,26 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-elevating-snaps-to-animation-the-cartoonists-playbook/"><u>[New] In 2024, Elevating Snaps to Animation The Cartoonist’s Playbook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-reviving-old-memories-posting-them-via-your-camera-roll/"><u>[New] In 2024, Reviving Old Memories Posting Them via Your Camera Roll</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-accelerate-lost-snap-content-find/"><u>[Updated] 2024 Approved Accelerate Lost Snap Content Find</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-musicreactionvids10-discovering-2023s-stars/"><u>[Updated] 2024 Approved MusicReactionVids10 Discovering 2023'S Stars</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-becoming-snapstreak-savvy-tips-for-uninterrupted-connection-for-2024/"><u>[Updated] Becoming Snapstreak Savvy Tips for Uninterrupted Connection for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-analysis-understanding-the-google-podcast-app/"><u>[Updated] In Depth Analysis Understanding the Google Podcast App</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-crafting-stunning-photography-mastering-hdr-merging-in-lightroom/"><u>2024 Approved Crafting Stunning Photography Mastering HDR Merging in Lightroom</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-crafting-unique-snapchat-experiences-with-120plus-innovative-ideas-for-personal-stories/"><u>2024 Approved Crafting Unique Snapchat Experiences with 120+ Innovative Ideas for Personal Stories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ve-perfect-youtube-broadcasts-with-superior-webcams-for-2024/"><u>Achieve Perfect YouTube Broadcasts with Superior Webcams for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/engaging-readers-with-strategic-reddit-sharing-techniques-for-2024/"><u>Engaging Readers with Strategic Reddit Sharing Techniques for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-samsung-galaxy-a25-5g-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Samsung Galaxy A25 5G</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On OnePlus 11 5G | Dr.fone</u></a></li>
+</ul></div>
 

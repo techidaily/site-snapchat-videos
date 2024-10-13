@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step-by-Step  Transferring Snapshots From Social Platform to Device\""
-date: 2024-07-25T15:25:58.033Z
-updated: 2024-07-26T15:25:58.033Z
+date: 2024-10-10T16:10:54.811Z
+updated: 2024-10-13T16:48:16.909Z
 tags:
   - ai video
   - ai snapchat
@@ -31,32 +31,26 @@ Step1 Navigate to your Snapchat and tap on your Bitmoji icon displayed in the to
 
 Step2 On the Settings menu, head to the My Account section and tap "Memories." In this new menu, tap on the "Save Button," where you can choose to save your snaps on either Camera Roll and Memories or Only Camera Roll. Tap on your preferred choice to export your snaps to your phone's gallery.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![select camera roll option](https://images.wondershare.com/filmora/article-images/2022/11/save-snaps-to-camera-roll-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## Part 2: Manually Export Snaps to Camera Roll
 
 If you don't want to alter the settings of Snapchat, you can still export snaps to the camera roll manually. In this solution, you can manually select a specific snap and export it directly to the camera roll. For this, the process is simple and quick, as described below:
 
 Step1 Open your Snapchat and tap on the "Snaps" icon given below. This will open all the captured snaps on your phone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![access your old snaps](https://images.wondershare.com/filmora/article-images/2022/11/save-snaps-to-camera-roll-3.jpg)
 
 Step2 Among all the snaps, select any snap that you want to send. Then, tap on the three-dot icon given at the top right.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tap on three dots](https://images.wondershare.com/filmora/article-images/2022/11/save-snaps-to-camera-roll-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 After selecting the three-dot icon, tap on the "Export or Send Snap" option. Now under the heading of "Share Elsewhere," tap on the "Download" icon, which will instantly export the snap to your camera roll.
 
@@ -72,13 +66,30 @@ Step2 Now tap and hold any specific snap that will allow you to select multiple 
 
 ![select your snaps](https://images.wondershare.com/filmora/article-images/2022/11/save-snaps-to-camera-roll-6.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Under the heading of "Share Elsewhere," tap on the "Download" icon. This will quickly start exporting the snaps to your camera roll smoothly.
 
 ![tap on the download icon](https://images.wondershare.com/filmora/article-images/2022/11/save-snaps-to-camera-roll-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How To Change Where Photos Are Saved in Snapchat
 
 Some people like to save the phone's storage by saving the snaps to memories. If you prefer saving the snaps in memories instead of the camera roll, you can save the phone's storage space. Conversely, some people like to export their snaps to the camera roll if multiple people use their Snapchat.
@@ -125,9 +136,6 @@ Since its inception in 2011, Snapchat has steadily evolved into one of the best 
 
 But have you ever wondered and thought about how people get those amazing images on Snapchat? Well, wonder no more! In this article, we're going to show you **how to edit photos on Snapchat** so that you can make them look even better!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![snapchat app](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-app.jpg)
 
 Therefore, without any further delay, let's dive in!
@@ -139,6 +147,13 @@ If you desire to add some extra flair to your photos, Snapchat's image editing t
 **Snapchat photo editing tools** are easy-to-use and can help you turn dull pictures into something fun and interesting. You can even edit images that were not originally taken on Snapchat.
 
 Want to know how? Keep reading to find out what is behind the curtain!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Edit Pictures Taken from the Camera Roll
 
@@ -171,17 +186,18 @@ Step2 This will take you to **Memories.** Click the **Camera Roll** tab, scroll 
 Step3 Now, you can send the picture to your friends, add it to your story, or edit it to create a masterpiece.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How To Edit Photos On Snapchat
 
 Now that you've added your picture from the Camera roll, follow the steps below to edit it using the Snapchat image editing tools:
 
 Step1 Click the **Edit** icon at the bottom-right of the selected picture. To add text, click the **T** icons, type whatever you want, select color by dragging the icon in the **color pane** and add the **text style.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![snapchat editing](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-editing.jpg)
 
 Step2 If you want to draw something on your picture, use the pencil icon. The draw function offers color panes, an emojis pen, and a color picker.
@@ -200,10 +216,14 @@ Step2 Since the stickers are placed in different categories, including recently 
 
 Step3 Next, swipe up and down to find the sticker you want and tap it to add to your picture. To know more about Snapchat filters, read "[Top 20 Snapchat Filters & Lenses to Make Your Snaps Special](https://tools.techidaily.com/wondershare/filmora/download/)."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![snapchat stickers library](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-stickers-library.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Use the Snapchat Text Tool
 
@@ -215,17 +235,8 @@ Step2 Type your text and use the **font gallery** to change the text style. Tap 
 
 Step3 Next, use the **color meter** to change the font color. Tap the **white icon** on the color bar and drag it to select your preferred color. Finally, tap the **Back** icon at the top-left of the screen to apply the text.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ![snapchat text tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-text-tool.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ### How to Draw on your Images
 
 Snapchat comes with a drawing tool that you can use to add a personal touch to your photos or create fun and unique designs in the following way:
@@ -236,14 +247,8 @@ Step2 Tap the **Color wheel** to change the color palette and then choose the co
 
 Step3 Finally, use your finger to draw on the picture. You can use the Undo icon to take back any action that goes wrong.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![snapchat draw tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-draw-tool.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How To Add A Theme
 
 Adding a theme to your images on Snapchat is a great way to add some personality and style. Here's how you can do this:
@@ -266,9 +271,6 @@ Step2 Type your **URL** in the search field, and tap **Enter** on your keyboard.
 
 Step3 Snapchat will open the website for your review. Tap the **"Attach to Snap"** option and adjust the link on your picture.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ### How To Crop Images On Snapchat
 
 The following steps can help your crop images on Snapchat:
@@ -279,16 +281,10 @@ Step2 Use your fingers to adjust the picture size and remove unwanted areas. You
 
 Step3 Finally, tap the **blue Check** icon to save your cropped image.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![snapchat crop tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-crop-tool.jpg)
 
 If you want to learn how to zoom your videos or images on Snapchat, [click here to find out!](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Set a Time Limit
 
 You can set a time limit on your photo to limit their visibility while editing it on Snapchat. To do so, follow the below instructions step-by-step:
@@ -299,20 +295,15 @@ Step2 Swipe up and down to select the time limit and tap it.
 
 Step3 Finally, tap the **Clock icon** at the top right side of the screen to apply the time limit.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![setting time limit on picture](https://images.wondershare.com/filmora/article-images/2022/11/setting-time-limit-on-picture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3\. How to Save Snaps for Later Sharing
 
 When you take a Snap, you can directly send it to your friends. But sometimes, you want to keep a Snap around for a while before sharing it. Maybe you want to edit it first, or you want to wait for the perfect moment to share it.
@@ -336,9 +327,6 @@ Step3 Tap the **"Save image."**
 
 ![snapchat sharing](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-sharing.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### Saving the Edited Camera Roll's Pictures
 
 Follow the instructions below to save your edited Camera Roll pictures on Snapchat:
@@ -362,8 +350,12 @@ For your Mac system, we recommend using [Filmora](https://tools.techidaily.com/w
 For Android, download the AZ video recorder - an app that does not require any root access and lets you record your screen with a high resolution and frame rate. To learn more, [click here!](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 In this article, we've explained **how to edit photos on Snapchat** with simple and easy-to-follow instructions. We've discussed adding stickers, text, URL, time limit, theme, and cropping the image to remove unwanted sections from it.
@@ -393,7 +385,19 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-memories-transforming-snapshayers-to-share-for-2024/"><u>[New] Mastering Memories Transforming Snapshayer's to Share for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-private-chronicles-in-snapchat-an-essential-guide-for-2024/"><u>[New] Private Chronicles in Snapchat An Essential Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-seamless-integration-of-real-time-video-on-websites/"><u>[Updated] 2024 Approved Seamless Integration of Real-Time Video on Websites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-write-striking-introductions-insights-and-demonstrations/"><u>[Updated] In 2024, Write Striking Introductions Insights & Demonstrations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-melodious-memories-capturing-songs-in-your-snaps-for-2024/"><u>[Updated] Melodious Memories Capturing Songs in Your Snaps for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-the-skywalkers-unite-new-war-epoch/"><u>[Updated] The Skywalkers Unite! New War Epoch</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-detect-if-someone-has-muted-or-blocked-you-on-snapchat/"><u>2024 Approved How to Detect If Someone Has Muted or Blocked You on Snapchat</u></a></li>
+<li><a href="https://win11.techidaily.com/breaking-through-the-barrier-of-windows-errors/"><u>Breaking Through the Barrier of Windows Errors</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-list-of-top-10-costless-apps-for-srt-files/"><u>Essential List of Top 10 Costless Apps for Srt Files</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/proactive-preservation-ios-photos-to-your-snap-story-for-2024/"><u>Proactive Preservation IOS Photos to Your Snap Story for 2024</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/step-by-step-guide-activating-uac-virtualization-on-windows-11/"><u>Step-by-Step Guide: Activating UAC Virtualization on Windows 11</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-new-frontier-of-internet-exploration-via-ai/"><u>The New Frontier of Internet Exploration via AI</u></a></li>
+</ul></div>
 

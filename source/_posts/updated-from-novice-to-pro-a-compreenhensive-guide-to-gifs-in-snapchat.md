@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Novice to Pro  A Compreenhensive Guide to Gifs in Snapchat\""
-date: 2024-10-04T16:07:39.241Z
-updated: 2024-10-07T20:38:50.910Z
+date: 2024-10-08T16:38:58.943Z
+updated: 2024-10-13T16:34:35.852Z
 tags:
   - ai video
   - ai snapchat
@@ -76,13 +76,6 @@ Putting GIFs in your photos is easy and takes only a few minutes. Here's how to 
 
 You must download the GBoard app on your phone to transfer GIFs to your pals immediately from a keypad on Android.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5.How can I get Gboard to work on Android?
 
 To install and activate the Gboard application and transmit GIFs directly from it, follow the procedure.
@@ -95,221 +88,12 @@ To install and activate the Gboard application and transmit GIFs directly from i
 
 ![gboard-setting1](https://images.wondershare.com/filmora/article-images/gboard-setting.jpg)
 
-1. The Communication and Input menu will appear in Preferences.
-2. Choose Gboard from the list of available keyboards.
-
-![gboard-setting2](https://images.wondershare.com/filmora/article-images/gboard-setting2.png)
-
-### 6.In iOS, how to send gif on snapchat Messages?
-
-Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals via Snapchat chats. However, you must first activate the keypad.
-
-1. Turn on the GIPHY keypad on your iPhone. Install the GIPHY phone app from the Apple Store. After you've downloaded the app, you'll need to activate the GIPHY keypad on your iPhone.
-2. To do just that, go over to the iPhone configuration menu and select “General” from the drop-down menu.
-
-![ios-setting-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting-send-gif.png)
-
-1. Scroll to the bottom of the Keypad choice, then click "Keypads" once again.
-
-![ios-setting2-send-gif.png](https://images.wondershare.com/filmora/article-images/ios-setting2-send-gif.png)
-
-1. All of the newly added keyboards will now be visible. Click the “Add Additional Keyboard” option to add GIPHY.
-
-![ios-setting3-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting3-send-gif.png)
-
-![ios-setting4-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting4-send-gif.png)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-For all informal interactions between pals, Snapchat is the go-to app. Many configurable options are available on the platform, allowing you to express your inner creative sides. Snapchat helps to put your spin on anything, whether it's just sharing random photos to your contacts or having extended chats.
-
-The option to add GIFs to Snapchat is one such great feature. Because Snapchat is primarily a picture-sharing app, the emphasis is on making these images as engaging and imaginative as possible, and this is where animated GIFs come to play.
-
-GIF stickers have exploded in popularity and for a good cause. The active emojis are mostly not amusing, but they also give life to your images, making your digital experience better overall.
-
-Given how entertaining GIFs can be, knowing how to send gif on snapchat is essential. As a result, we've put up a detailed guide that explains how to send gif on snapchat in four distinct methods. Enjoy!
-
-Do you want to know how to send gif on snapchat in different simple ways? Then you've arrived at the correct page. In this post, we'll show you how to send gif on snapchat in just a few easy and simple steps.
-
-### 1.How to send gif on snapchat?
-
-* On your phone, open Snapchat.
-* Take a picture
-* Select the Stickers symbol.
-* Select a GIF.
-* Choose the GIF you want to use.
-* Finally, please include it in the picture.
-
-### 2.How to make your animated GIFs
-
-GIF means Graphics Interchange Format, and it's simply a series of moving, dynamic pictures (think Harry Potter) that loop indefinitely. They give your image, which would otherwise be stagnant and dull, a new dimension.
-
-GIFs are so entertaining that they can be used to carry a whole discussion. However, if you want to learn how to make your GIFs, follow the steps below.
-
-You'll need to utilize the GIPHY application to generate your unique GIFs for this.
-
-On your phone, download the GIPHY app.
-
-1. Start the app on your Mobile and select the create option.
-2. **Smile symbol:** Take a Photo and Gallery Option are the three options available to you.
-3. Smile Icon: This option allows you to make GIFs using the edit button.
-4. **Capture a Photo:** This option allows the user to take a photo on the scene and convert it to a GIF.
-5. **Option of Gallery:** You may build a GIF by selecting a photo from your gallery and editing it.
-6. Select options and begin designing depending on your preferences.
-7. When you will finish, click on the arrow in the bottom right-hand corner to exit.
-8. To save all the GIFs, go to Generated GIFs, touch on the three vertical dots, and choose Save GIF.
-
-That GIF has now been saved to your pictures folder and can be seen anytime you need that.
-
-### 3.What is the best way to transmit GIFs on Snapchat?
-
-Putting GIFs in your photos is easy and takes only a few minutes. Here's how to accomplish it.
-
-1. Log in to your Snapchat account by opening the app on your phone.
-2. Click a photo or choose an image from your collection to upload.
-3. Select the sticker button to add extra components to the Snap.
-4. Choose the GIF choice and any GIF you wish.
-5. Once you've chosen a GIF, it'll show on the Snap for you to adjust and position anywhere you'd like.
-6. Lastly, to send the Snap to your pals, select the arrow option in the lower right corner.
-
-![best-way-to-transmit-gif-on-snapchat](https://images.wondershare.com/filmora/article-images/best-way-to-transmit-gif-on-snapchat.png)
-
-### 4.On Android, how to send gif on snapchat Messages?
-
-You must download the GBoard app on your phone to transfer GIFs to your pals immediately from a keypad on Android.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-### 5.How can I get Gboard to work on Android?
-
-To install and activate the Gboard application and transmit GIFs directly from it, follow the procedure.
-
-1. Download the Gboard application on your Android.
-
-![gboard-poster](https://images.wondershare.com/filmora/article-images/gboard-poster.jpg)
-
-1. Open the app and select Enable in Configurations from the menu.
-
-![gboard-setting1](https://images.wondershare.com/filmora/article-images/gboard-setting.jpg)
-
-1. The Communication and Input menu will appear in Preferences.
-2. Choose Gboard from the list of available keyboards.
-
-![gboard-setting2](https://images.wondershare.com/filmora/article-images/gboard-setting2.png)
-
-### 6.In iOS, how to send gif on snapchat Messages?
-
-Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals via Snapchat chats. However, you must first activate the keypad.
-
-1. Turn on the GIPHY keypad on your iPhone. Install the GIPHY phone app from the Apple Store. After you've downloaded the app, you'll need to activate the GIPHY keypad on your iPhone.
-2. To do just that, go over to the iPhone configuration menu and select “General” from the drop-down menu.
-
-![ios-setting-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting-send-gif.png)
-
-1. Scroll to the bottom of the Keypad choice, then click "Keypads" once again.
-
-![ios-setting2-send-gif.png](https://images.wondershare.com/filmora/article-images/ios-setting2-send-gif.png)
-
-1. All of the newly added keyboards will now be visible. Click the “Add Additional Keyboard” option to add GIPHY.
-
-![ios-setting3-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting3-send-gif.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-![ios-setting4-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting4-send-gif.png)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-For all informal interactions between pals, Snapchat is the go-to app. Many configurable options are available on the platform, allowing you to express your inner creative sides. Snapchat helps to put your spin on anything, whether it's just sharing random photos to your contacts or having extended chats.
-
-The option to add GIFs to Snapchat is one such great feature. Because Snapchat is primarily a picture-sharing app, the emphasis is on making these images as engaging and imaginative as possible, and this is where animated GIFs come to play.
-
-GIF stickers have exploded in popularity and for a good cause. The active emojis are mostly not amusing, but they also give life to your images, making your digital experience better overall.
-
-Given how entertaining GIFs can be, knowing how to send gif on snapchat is essential. As a result, we've put up a detailed guide that explains how to send gif on snapchat in four distinct methods. Enjoy!
-
-Do you want to know how to send gif on snapchat in different simple ways? Then you've arrived at the correct page. In this post, we'll show you how to send gif on snapchat in just a few easy and simple steps.
-
-### 1.How to send gif on snapchat?
-
-* On your phone, open Snapchat.
-* Take a picture
-* Select the Stickers symbol.
-* Select a GIF.
-* Choose the GIF you want to use.
-* Finally, please include it in the picture.
-
-### 2.How to make your animated GIFs
-
-GIF means Graphics Interchange Format, and it's simply a series of moving, dynamic pictures (think Harry Potter) that loop indefinitely. They give your image, which would otherwise be stagnant and dull, a new dimension.
-
-GIFs are so entertaining that they can be used to carry a whole discussion. However, if you want to learn how to make your GIFs, follow the steps below.
-
-You'll need to utilize the GIPHY application to generate your unique GIFs for this.
-
-On your phone, download the GIPHY app.
-
-1. Start the app on your Mobile and select the create option.
-2. **Smile symbol:** Take a Photo and Gallery Option are the three options available to you.
-3. Smile Icon: This option allows you to make GIFs using the edit button.
-4. **Capture a Photo:** This option allows the user to take a photo on the scene and convert it to a GIF.
-5. **Option of Gallery:** You may build a GIF by selecting a photo from your gallery and editing it.
-6. Select options and begin designing depending on your preferences.
-7. When you will finish, click on the arrow in the bottom right-hand corner to exit.
-8. To save all the GIFs, go to Generated GIFs, touch on the three vertical dots, and choose Save GIF.
-
-That GIF has now been saved to your pictures folder and can be seen anytime you need that.
-
-### 3.What is the best way to transmit GIFs on Snapchat?
-
-Putting GIFs in your photos is easy and takes only a few minutes. Here's how to accomplish it.
-
-1. Log in to your Snapchat account by opening the app on your phone.
-2. Click a photo or choose an image from your collection to upload.
-3. Select the sticker button to add extra components to the Snap.
-4. Choose the GIF choice and any GIF you wish.
-5. Once you've chosen a GIF, it'll show on the Snap for you to adjust and position anywhere you'd like.
-6. Lastly, to send the Snap to your pals, select the arrow option in the lower right corner.
-
-![best-way-to-transmit-gif-on-snapchat](https://images.wondershare.com/filmora/article-images/best-way-to-transmit-gif-on-snapchat.png)
-
-### 4.On Android, how to send gif on snapchat Messages?
-
-You must download the GBoard app on your phone to transfer GIFs to your pals immediately from a keypad on Android.
-
-### 5.How can I get Gboard to work on Android?
-
-To install and activate the Gboard application and transmit GIFs directly from it, follow the procedure.
-
-1. Download the Gboard application on your Android.
-
-![gboard-poster](https://images.wondershare.com/filmora/article-images/gboard-poster.jpg)
-
-1. Open the app and select Enable in Configurations from the menu.
-
-![gboard-setting1](https://images.wondershare.com/filmora/article-images/gboard-setting.jpg)
 
 1. The Communication and Input menu will appear in Preferences.
 2. Choose Gboard from the list of available keyboards.
@@ -417,6 +201,127 @@ To install and activate the Gboard application and transmit GIFs directly from i
 
 ![gboard-setting2](https://images.wondershare.com/filmora/article-images/gboard-setting2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 6.In iOS, how to send gif on snapchat Messages?
+
+Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals via Snapchat chats. However, you must first activate the keypad.
+
+1. Turn on the GIPHY keypad on your iPhone. Install the GIPHY phone app from the Apple Store. After you've downloaded the app, you'll need to activate the GIPHY keypad on your iPhone.
+2. To do just that, go over to the iPhone configuration menu and select “General” from the drop-down menu.
+
+![ios-setting-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting-send-gif.png)
+
+1. Scroll to the bottom of the Keypad choice, then click "Keypads" once again.
+
+![ios-setting2-send-gif.png](https://images.wondershare.com/filmora/article-images/ios-setting2-send-gif.png)
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+1. All of the newly added keyboards will now be visible. Click the “Add Additional Keyboard” option to add GIPHY.
+
+![ios-setting3-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting3-send-gif.png)
+
+![ios-setting4-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting4-send-gif.png)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+For all informal interactions between pals, Snapchat is the go-to app. Many configurable options are available on the platform, allowing you to express your inner creative sides. Snapchat helps to put your spin on anything, whether it's just sharing random photos to your contacts or having extended chats.
+
+The option to add GIFs to Snapchat is one such great feature. Because Snapchat is primarily a picture-sharing app, the emphasis is on making these images as engaging and imaginative as possible, and this is where animated GIFs come to play.
+
+GIF stickers have exploded in popularity and for a good cause. The active emojis are mostly not amusing, but they also give life to your images, making your digital experience better overall.
+
+Given how entertaining GIFs can be, knowing how to send gif on snapchat is essential. As a result, we've put up a detailed guide that explains how to send gif on snapchat in four distinct methods. Enjoy!
+
+Do you want to know how to send gif on snapchat in different simple ways? Then you've arrived at the correct page. In this post, we'll show you how to send gif on snapchat in just a few easy and simple steps.
+
+### 1.How to send gif on snapchat?
+
+* On your phone, open Snapchat.
+* Take a picture
+* Select the Stickers symbol.
+* Select a GIF.
+* Choose the GIF you want to use.
+* Finally, please include it in the picture.
+
+### 2.How to make your animated GIFs
+
+GIF means Graphics Interchange Format, and it's simply a series of moving, dynamic pictures (think Harry Potter) that loop indefinitely. They give your image, which would otherwise be stagnant and dull, a new dimension.
+
+GIFs are so entertaining that they can be used to carry a whole discussion. However, if you want to learn how to make your GIFs, follow the steps below.
+
+You'll need to utilize the GIPHY application to generate your unique GIFs for this.
+
+On your phone, download the GIPHY app.
+
+1. Start the app on your Mobile and select the create option.
+2. **Smile symbol:** Take a Photo and Gallery Option are the three options available to you.
+3. Smile Icon: This option allows you to make GIFs using the edit button.
+4. **Capture a Photo:** This option allows the user to take a photo on the scene and convert it to a GIF.
+5. **Option of Gallery:** You may build a GIF by selecting a photo from your gallery and editing it.
+6. Select options and begin designing depending on your preferences.
+7. When you will finish, click on the arrow in the bottom right-hand corner to exit.
+8. To save all the GIFs, go to Generated GIFs, touch on the three vertical dots, and choose Save GIF.
+
+That GIF has now been saved to your pictures folder and can be seen anytime you need that.
+
+### 3.What is the best way to transmit GIFs on Snapchat?
+
+Putting GIFs in your photos is easy and takes only a few minutes. Here's how to accomplish it.
+
+1. Log in to your Snapchat account by opening the app on your phone.
+2. Click a photo or choose an image from your collection to upload.
+3. Select the sticker button to add extra components to the Snap.
+4. Choose the GIF choice and any GIF you wish.
+5. Once you've chosen a GIF, it'll show on the Snap for you to adjust and position anywhere you'd like.
+6. Lastly, to send the Snap to your pals, select the arrow option in the lower right corner.
+
+![best-way-to-transmit-gif-on-snapchat](https://images.wondershare.com/filmora/article-images/best-way-to-transmit-gif-on-snapchat.png)
+
+### 4.On Android, how to send gif on snapchat Messages?
+
+You must download the GBoard app on your phone to transfer GIFs to your pals immediately from a keypad on Android.
+
+### 5.How can I get Gboard to work on Android?
+
+To install and activate the Gboard application and transmit GIFs directly from it, follow the procedure.
+
+1. Download the Gboard application on your Android.
+
+![gboard-poster](https://images.wondershare.com/filmora/article-images/gboard-poster.jpg)
+
+1. Open the app and select Enable in Configurations from the menu.
+
+![gboard-setting1](https://images.wondershare.com/filmora/article-images/gboard-setting.jpg)
+
+1. The Communication and Input menu will appear in Preferences.
+2. Choose Gboard from the list of available keyboards.
+
+![gboard-setting2](https://images.wondershare.com/filmora/article-images/gboard-setting2.png)
+
 ### 6.In iOS, how to send gif on snapchat Messages?
 
 Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals via Snapchat chats. However, you must first activate the keypad.
@@ -433,6 +338,128 @@ Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals 
 1. All of the newly added keyboards will now be visible. Click the “Add Additional Keyboard” option to add GIPHY.
 
 ![ios-setting3-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting3-send-gif.png)
+
+![ios-setting4-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting4-send-gif.png)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+For all informal interactions between pals, Snapchat is the go-to app. Many configurable options are available on the platform, allowing you to express your inner creative sides. Snapchat helps to put your spin on anything, whether it's just sharing random photos to your contacts or having extended chats.
+
+The option to add GIFs to Snapchat is one such great feature. Because Snapchat is primarily a picture-sharing app, the emphasis is on making these images as engaging and imaginative as possible, and this is where animated GIFs come to play.
+
+GIF stickers have exploded in popularity and for a good cause. The active emojis are mostly not amusing, but they also give life to your images, making your digital experience better overall.
+
+Given how entertaining GIFs can be, knowing how to send gif on snapchat is essential. As a result, we've put up a detailed guide that explains how to send gif on snapchat in four distinct methods. Enjoy!
+
+Do you want to know how to send gif on snapchat in different simple ways? Then you've arrived at the correct page. In this post, we'll show you how to send gif on snapchat in just a few easy and simple steps.
+
+### 1.How to send gif on snapchat?
+
+* On your phone, open Snapchat.
+* Take a picture
+* Select the Stickers symbol.
+* Select a GIF.
+* Choose the GIF you want to use.
+* Finally, please include it in the picture.
+
+### 2.How to make your animated GIFs
+
+GIF means Graphics Interchange Format, and it's simply a series of moving, dynamic pictures (think Harry Potter) that loop indefinitely. They give your image, which would otherwise be stagnant and dull, a new dimension.
+
+GIFs are so entertaining that they can be used to carry a whole discussion. However, if you want to learn how to make your GIFs, follow the steps below.
+
+You'll need to utilize the GIPHY application to generate your unique GIFs for this.
+
+On your phone, download the GIPHY app.
+
+1. Start the app on your Mobile and select the create option.
+2. **Smile symbol:** Take a Photo and Gallery Option are the three options available to you.
+3. Smile Icon: This option allows you to make GIFs using the edit button.
+4. **Capture a Photo:** This option allows the user to take a photo on the scene and convert it to a GIF.
+5. **Option of Gallery:** You may build a GIF by selecting a photo from your gallery and editing it.
+6. Select options and begin designing depending on your preferences.
+7. When you will finish, click on the arrow in the bottom right-hand corner to exit.
+8. To save all the GIFs, go to Generated GIFs, touch on the three vertical dots, and choose Save GIF.
+
+That GIF has now been saved to your pictures folder and can be seen anytime you need that.
+
+### 3.What is the best way to transmit GIFs on Snapchat?
+
+Putting GIFs in your photos is easy and takes only a few minutes. Here's how to accomplish it.
+
+1. Log in to your Snapchat account by opening the app on your phone.
+2. Click a photo or choose an image from your collection to upload.
+3. Select the sticker button to add extra components to the Snap.
+4. Choose the GIF choice and any GIF you wish.
+5. Once you've chosen a GIF, it'll show on the Snap for you to adjust and position anywhere you'd like.
+6. Lastly, to send the Snap to your pals, select the arrow option in the lower right corner.
+
+![best-way-to-transmit-gif-on-snapchat](https://images.wondershare.com/filmora/article-images/best-way-to-transmit-gif-on-snapchat.png)
+
+### 4.On Android, how to send gif on snapchat Messages?
+
+You must download the GBoard app on your phone to transfer GIFs to your pals immediately from a keypad on Android.
+
+### 5.How can I get Gboard to work on Android?
+
+To install and activate the Gboard application and transmit GIFs directly from it, follow the procedure.
+
+1. Download the Gboard application on your Android.
+
+![gboard-poster](https://images.wondershare.com/filmora/article-images/gboard-poster.jpg)
+
+1. Open the app and select Enable in Configurations from the menu.
+
+![gboard-setting1](https://images.wondershare.com/filmora/article-images/gboard-setting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+1. The Communication and Input menu will appear in Preferences.
+2. Choose Gboard from the list of available keyboards.
+
+![gboard-setting2](https://images.wondershare.com/filmora/article-images/gboard-setting2.png)
+
+### 6.In iOS, how to send gif on snapchat Messages?
+
+Using the GIPHY keypad on your iPhone, you can share GIFs straight to your pals via Snapchat chats. However, you must first activate the keypad.
+
+1. Turn on the GIPHY keypad on your iPhone. Install the GIPHY phone app from the Apple Store. After you've downloaded the app, you'll need to activate the GIPHY keypad on your iPhone.
+2. To do just that, go over to the iPhone configuration menu and select “General” from the drop-down menu.
+
+![ios-setting-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting-send-gif.png)
+
+1. Scroll to the bottom of the Keypad choice, then click "Keypads" once again.
+
+![ios-setting2-send-gif.png](https://images.wondershare.com/filmora/article-images/ios-setting2-send-gif.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+1. All of the newly added keyboards will now be visible. Click the “Add Additional Keyboard” option to add GIPHY.
+
+![ios-setting3-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting3-send-gif.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![ios-setting4-send-gif](https://images.wondershare.com/filmora/article-images/ios-setting4-send-gif.png)
 
@@ -463,13 +490,6 @@ Since its inception in 2011, Snapchat has steadily evolved into one of the best 
 But have you ever wondered and thought about how people get those amazing images on Snapchat? Well, wonder no more! In this article, we're going to show you **how to edit photos on Snapchat** so that you can make them look even better!
 
 ![snapchat app](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-app.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Therefore, without any further delay, let's dive in!
 
@@ -505,13 +525,6 @@ Step1 Open the **Snapchat app** on your device and tap the **"Two Overlayed Pict
 
 ![accessing camera roll](https://images.wondershare.com/filmora/article-images/2022/11/accessing-camera-roll.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 This will take you to **Memories.** Click the **Camera Roll** tab, scroll the pictures to add the one you want, and tap it.
 
 ![snapchat camera roll](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-camera-roll.jpg)
@@ -526,18 +539,18 @@ Step1 Click the **Edit** icon at the bottom-right of the selected picture. To ad
 
 ![snapchat editing](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-editing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 If you want to draw something on your picture, use the pencil icon. The draw function offers color panes, an emojis pen, and a color picker.
 
 Step3 You can also use the **Scissor** icon to cut a portion of your picture and create a sticker or add a URL to your image using the paperclip icon.
 
 Step4 To set a time limit on your snap, click the **Clock** icon and set the limit. Finally, tap the **Done** icon to save a copy of the photo, or use the **Export** icon to share your picture on other social media platforms.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How To Add Stickers To Your Images?
 
@@ -562,13 +575,6 @@ Step2 Type your text and use the **font gallery** to change the text style. Tap 
 Step3 Next, use the **color meter** to change the font color. Tap the **white icon** on the color bar and drag it to select your preferred color. Finally, tap the **Back** icon at the top-left of the screen to apply the text.
 
 ![snapchat text tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-text-tool.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Draw on your Images
 
@@ -603,13 +609,6 @@ Step1 On your selected picture, click the **Paperclip** icon to launch the URL t
 Step2 Type your **URL** in the search field, and tap **Enter** on your keyboard.
 
 Step3 Snapchat will open the website for your review. Tap the **"Attach to Snap"** option and adjust the link on your picture.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How To Crop Images On Snapchat
 
@@ -670,6 +669,13 @@ Step2 Tap **"Save as Copy,"** and your picture will be saved to your gallery.
 
 Step3 Alternatively, you can tap the **Export** option and select **"Download"** to save the image to your phone's Gallery.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A Bonus Tips: How to Save Snapchat Videos with Apps on Android and Mac
 
 Do you want to record your Snapchat stories like a movie or slideshow on Android or Mac? Well, you can save your Snapchat videos using apps or software programs.
@@ -713,19 +719,15 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-how-to-recover-eyes-only-snaps-a-step-by-step-guide/"><u>[New] How to Recover Eyes-Only Snaps A Step-by-Step Guide</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-the-complete-snapchat-gif-connoisseurs-guidebook/"><u>[New] The Complete Snapchat GIF Connoisseur's Guidebook</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-tips-for-using-snap-camera-for-remote-team-collaboration/"><u>[New] Tips for Using Snap Camera for Remote Team Collaboration</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-engaging-video-credits-the-best-fonts-for-thumbnails-for-2024/"><u>[Updated] Engaging Video Credits The Best Fonts for Thumbnails for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-a-step-by-step-guide-to-mastering-business-on-snap/"><u>[Updated] In 2024, A Step-by-Step Guide to Mastering Business on Snap</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-from-freelance-filmmaker-to-full-time-financier-snapchat-storytelling/"><u>[Updated] In 2024, From Freelance Filmmaker to Full-Time Financier Snapchat Storytelling</u></a></li>
-<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-on-your-apple-iphone-14-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID on Your Apple iPhone 14?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-honor-x50i-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Honor X50i Phone Screen?</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-disabled-apple-iphone-6-plusipad-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Disabled Apple iPhone 6 Plus/iPad Without Computer | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-poco-m6-pro-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Poco M6 Pro 5G Android SIM Unlock APK</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Oppo A1 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-star-wars-squadrons-game-analysis-engrossing-galactic-battles-await/"><u>In-Depth Star Wars Squadrons Game Analysis - Engrossing Galactic Battles Await!</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-can-you-enhance-your-drone-footage-with-cinematic-drone-luts-this-article-discusses-top-drone-luts-recommendations-to-simplify-video-editing/"><u>Updated In 2024, Can You Enhance Your Drone Footage with Cinematic Drone LUTs? This Article Discusses Top Drone LUTs Recommendations to Simplify Video Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-essential-actions-while-absorbing-audio-tales/"><u>[New] Essential Actions While Absorbing Audio Tales</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-from-past-to-present-using-camera-roll-in-snapchats-for-2024/"><u>[New] From Past To Present Using Camera Roll in Snapchats for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-numbers-game-how-much-does-adsense-pay-on-a-thousand-video-glimpses/"><u>[New] In 2024, The Numbers Game How Much Does AdSense Pay on a Thousand Video Glimpses?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-perfect-sync-saving-your-camera-memories-seamlessly-on-snapchat/"><u>[Updated] 2024 Approved Perfect Sync Saving Your Camera Memories Seamlessly on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-unleash-creative-expression-your-guide-to-sending-gifs-via-snapchat/"><u>[Updated] 2024 Approved Unleash Creative Expression Your Guide to Sending Gifs via Snapchat</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-atandt-apple-iphone-14-pro-max-with-3-methods-by-drfone-ios/"><u>How to Unlock AT&T Apple iPhone 14 Pro Max with 3 Methods</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-ideas-to-keep-your-snapchat-streak-alive/"><u>In 2024, Ideas to Keep Your Snapchat Streak Alive</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-combining-two-excel-columns-efficiently/"><u>Step-by-Step Guide: Combining Two Excel Columns Efficiently</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ultimate-guide-to-dynamic-collages/"><u>Ultimate Guide to Dynamic Collages</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ultimate-tips-on-swiftly-transforming-videos-for-smartphones/"><u>Ultimate Tips on Swiftly Transforming Videos for Smartphones</u></a></li>
 </ul></div>
 
