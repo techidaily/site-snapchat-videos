@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Craft Snapchat Magic  Two Easy Lens Making Ways\""
-date: 2024-10-08T16:11:36.779Z
-updated: 2024-10-13T16:37:35.764Z
+date: 2024-10-17T16:09:41.390Z
+updated: 2024-10-19T16:24:17.851Z
 tags:
   - ai video
   - ai snapchat
@@ -69,13 +69,6 @@ There is also a Lens Studio Overview guide that you can access online, which wil
 
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 3\. Use Studio Panels
 
 Are you ready to create your own custom Snapchat lens? It is time to head over to Studio Panels on the application. This is the area where you can add your own 2D or 3D objects, and you can visualize how they would look as a Snapchat filter. You can add, remove, resize and drag objects to specific areas of the screen.
@@ -85,10 +78,10 @@ There are other tools accessible from the Resources panel. You can use these too
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. Preview the Snapchat Lens You Create
@@ -98,17 +91,10 @@ The great thing about this application is that you can preview the lens before y
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
@@ -118,9 +104,23 @@ The great thing about this application is that you can preview the lens before y
 
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,17 +143,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-uniting-fans-anime-opening-songs-showcase/"><u>[New] 2024 Approved Uniting Fans Anime Opening Songs Showcase</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-your-quick-guide-to-successful-online-television-archiving/"><u>[New] In 2024, Your Quick Guide to Successful Online Television Archiving</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-enhancing-meeting-success-with-microsoft-teams-snap-camera/"><u>[Updated] 2024 Approved Enhancing Meeting Success with Microsoft Teams Snap Camera</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-deciphering-absent-messages-on-snapmap-for-2024/"><u>[Updated] Deciphering Absent Messages on Snapmap for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-discovering-the-best-in-screen-recording/"><u>2024 Approved Discovering the Best in Screen Recording</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-rewind-and-play-instagrams-backwards-videos-unveiled/"><u>2024 Approved Rewind and Play Instagram's Backwards Videos Unveiled</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/chatgpt-job-hunt-advantages-6-efficient-methods/"><u>ChatGPT Job Hunt Advantages: 6 Efficient Methods</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-x9a-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Honor X9a Phone without Google Account?</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/revitalize-old-footage-with-our-top-pick-of-10-video-editing-repair-tools-compatible-with-windows-and-macos/"><u>Revitalize Old Footage with Our Top Pick of 10 Video Editing Repair Tools [Compatible with Windows and macOS]</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/signal-of-a-block-missed-snaps-and-none-left-for-2024/"><u>Signal of a Block Missed Snaps and None Left for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/the-rise-of-micro-video-a-tiktok-vs-snapchat-study/"><u>The Rise of Micro-Video A TikTok vs Snapchat Study</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hoosing-the-right-video-sharing-platform-tiktok-vs-youtubes-shorts-in-2024/"><u>[New] Choosing the Right Video Sharing Platform TikTok vs YouTubes' Shorts, In 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-expert-advice-how-to-leverage-snapchat-effectively/"><u>[New] Expert Advice How to Leverage Snapchat Effectively</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-navigating-through-the-essentials-of-snap-camera-on-ms-teams/"><u>[New] Navigating Through the Essentials of Snap Camera on MS Teams</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snatching-your-secret-snaps-again/"><u>[New] Snatching Your Secret Snaps Again</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-screen-saving-snapchat-memories-on-phone/"><u>[Updated] 2024 Approved Screen Saving Snapchat Memories on Phone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-to-turning-memories-into-snaps/"><u>[Updated] 2024 Approved The Ultimate Guide to Turning Memories Into Snaps</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-oppo-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on Oppo .</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/finding-gratuitous-software-for-streaming-online-seminars-for-2024/"><u>Finding Gratuitous Software for Streaming Online Seminars for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-hot-pursuit-of-snaps-tactics-for-uninterrupted-streaks/"><u>In 2024, Hot Pursuit of Snaps - Tactics for Uninterrupted Streaks</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-honor-x50-gt-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Honor X50 GT to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-record-holders-the-epitome-of-reddit-engagement-10-threads/"><u>In 2024, Record Holders The Epitome of Reddit Engagement (10 Threads)</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/quality-mechanical-keyboards-for-savvy-shoppers/"><u>Quality Mechanical Keyboards for Savvy Shoppers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlocking-potential-a-guide-to-gpt-use/"><u>Unlocking Potential: A Guide to GPT Use</u></a></li>
 </ul></div>
 
