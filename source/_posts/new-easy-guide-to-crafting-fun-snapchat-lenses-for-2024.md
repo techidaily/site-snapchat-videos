@@ -1,7 +1,7 @@
 ---
 title: "[New] Easy Guide to Crafting Fun Snapchat Lenses for 2024"
-date: 2024-10-17T16:27:19.254Z
-updated: 2024-10-19T16:37:21.927Z
+date: 2024-10-24T05:40:56.597Z
+updated: 2024-10-25T11:03:16.352Z
 tags:
   - ai video
   - ai snapchat
@@ -70,16 +70,16 @@ There is also a Lens Studio Overview guide that you can access online, which wil
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 3\. Use Studio Panels
@@ -97,10 +97,17 @@ The great thing about this application is that you can preview the lens before y
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
@@ -109,13 +116,6 @@ The great thing about this application is that you can preview the lens before y
 2. When you are in the application or on the website, you may start to look at the different templates for Snapchat lenses. Now you can add other items into the templates, such as photographs, text or graphics.
 
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
@@ -128,10 +128,16 @@ Creating Snapchat lenses has never been easier. Whether you are a business looki
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -149,19 +155,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-effortless-techniques-to-edit-multisnapping-videos/"><u>[New] 2024 Approved Effortless Techniques to Edit Multisnapping Videos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-elevate-your-visuals-with-hdr-written-in-the-stars-hdr/"><u>[New] Elevate Your Visuals with HDR' Written in the Stars (HDR)</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-ideal-echo-chamber-recorders-for-2024/"><u>[New] Ideal Echo Chamber Recorders for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-cut-to-perfection-an-in-depth-look-at-vivacut-for-24/"><u>[New] In 2024, Cut to Perfection An In-Depth Look at VivaCut for '24</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-the-art-of-targeting-optimizing-ad-reach-on-snap-for-2024/"><u>[New] The Art of Targeting Optimizing Ad Reach on Snap for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snap-your-way-unique-discover-over-120-private-story-creation-tips-and-tricks/"><u>[Updated] 2024 Approved Snap Your Way Unique Discover over 120 Private Story Creation Tips and Tricks</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/correcting-inverted-display-on-windows-11/"><u>Correcting Inverted Display on Windows 11</u></a></li>
-<li><a href="https://techtrends.techidaily.com/googles-next-smartphone-revealed-the-new-pixel-series-price-release-date-and-tech-rumors/"><u>Google's Next Smartphone Revealed - The New Pixel Series: Price, Release Date & Tech Rumors</u></a></li>
-<li><a href="https://review-topics.techidaily.com/insert-signature-in-word-2016-by-ldigisigner-sign-a-word-sign-a-word/"><u>Insert signature in Word 2016</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/journey-through-animated-expression-your-guide-to-snapface-magic-for-2024/"><u>Journey Through Animated Expression Your Guide to Snapface Magic for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/strategy-for-successful-entry-fixing-common-chatgpt-errors/"><u>Strategy for Successful Entry: Fixing Common ChatGPT Errors</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/the-artisans-path-to-crafting-confidential-snaps-for-2024/"><u>The Artisan's Path to Crafting Confidential Snaps for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/transformation-tips-applying-japans-favorite-on-screen-effects/"><u>Transformation Tips Applying Japan's Favorite On-Screen Effects</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unblock-your-account-tackling-four-major-issues/"><u>Unblock Your Account: Tackling Four Major Issues</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-beginners-guide-to-easy-multi-snap-chat-videos-and-edits/"><u>[New] 2024 Approved The Beginner's Guide to Easy Multi-Snap Chat Videos & Edits</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-enhancing-your-social-presence-tweeting-to-facebook-for-2024/"><u>[New] Enhancing Your Social Presence Tweeting to Facebook for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-tempo-a-guide-to-instagram-story-adjustments/"><u>[New] Mastering Tempo A Guide to Instagram Story Adjustments</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-navigating-whatsapps-voice-exchange/"><u>[New] Navigating WhatsApp's Voice Exchange</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-soundtracking-your-snapchats-for-2024/"><u>[Updated] SoundTracking Your Snapchats for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sky-cameras-rivalry-dji-m310-vs-gopro-hero5-session/"><u>2024 Approved Sky Cameras Rivalry DJI M310 VS GoPro HERO5 Session</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-guide-to-drawing-characters-with-snaps/"><u>2024 Approved The Ultimate Guide to Drawing Characters with Snaps</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/evaluating-home-security-which-wins-out-the-ring-or-nest-doorbell/"><u>Evaluating Home Security: Which Wins Out - The Ring or Nest Doorbell?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722969280745-free-installation-file-for-hp-laserjet-p1006-get-it-here/"><u>Free Installation File for HP LaserJet P1006 - Get It Here!</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-crafting-visual-wonders-an-insiders-guide-to-editing-on-snapchat/"><u>In 2024, Crafting Visual Wonders An Insider’s Guide to Editing on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-emojis-revealed-a-closer-look-at-snapchats-hidden-language/"><u>In 2024, Emojis Revealed A Closer Look at Snapchat's Hidden Language</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/solutions-for-unplayable-video-files/"><u>Solutions for Unplayable Video Files</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unlocking-snapchats-secret-symbolic-messages-for-2024/"><u>Unlocking Snapchat's Secret Symbolic Messages for 2024</u></a></li>
 </ul></div>
 
