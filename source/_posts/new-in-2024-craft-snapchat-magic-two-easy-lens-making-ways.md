@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Craft Snapchat Magic  Two Easy Lens Making Ways\""
-date: 2024-10-20T10:07:41.303Z
-updated: 2024-10-24T17:26:04.079Z
+date: 2024-10-29T16:44:53.251Z
+updated: 2024-10-31T04:24:15.184Z
 tags:
   - ai video
   - ai snapchat
@@ -55,6 +55,13 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Use Lens Studio
 
 #### 1\. Download Lens Studio
@@ -69,13 +76,6 @@ There is also a Lens Studio Overview guide that you can access online, which wil
 
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 3\. Use Studio Panels
 
 Are you ready to create your own custom Snapchat lens? It is time to head over to Studio Panels on the application. This is the area where you can add your own 2D or 3D objects, and you can visualize how they would look as a Snapchat filter. You can add, remove, resize and drag objects to specific areas of the screen.
@@ -84,18 +84,18 @@ There are other tools accessible from the Resources panel. You can use these too
 
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. Preview the Snapchat Lens You Create
 
 The great thing about this application is that you can preview the lens before you send it out to your phone. When you are satisfied with the image on the preview, you can pair your phone with the application, and you will be able to send that Snapchat lens onto your phone through your Snapcode. It is that simple!
 
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
 
@@ -105,28 +105,28 @@ The great thing about this application is that you can preview the lens before y
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -143,18 +143,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-send-a-wave-of-happiness-steps-to-sending-gifs-in-snapchat/"><u>[New] 2024 Approved Send a Wave of Happiness Steps to Sending Gifs in Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-beam-bright-navigating-the-world-of-snapchat-gifs/"><u>[New] Beam Bright Navigating the World of Snapchat GIFS</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-bring-your-imagination-to-life-using-cartoony-filters-in-snapchat/"><u>[Updated] 2024 Approved Bring Your Imagination to Life Using Cartoony Filters in Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-snapchat-friendly-how-to-use-your-camera-roll-effectively-for-2024/"><u>[Updated] Snapchat-Friendly How to Use Your Camera Roll Effectively for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/demystifying-how-on-device-ai-works-a-comprehensive-guide/"><u>Demystifying How On-Device AI Works: A Comprehensive Guide</u></a></li>
-<li><a href="https://video-capture.techidaily.com/essential-strategies-for-capturing-starlit-self-portraits/"><u>Essential Strategies for Capturing Starlit Self-Portraits</u></a></li>
-<li><a href="https://driver-download.techidaily.com/factors-influencing-creep-include-stress-level-temperature-material-composition-grain-size-and-environmental-conditions/"><u>Factors Influencing Creep Include Stress Level, Temperature, Material Composition, Grain Size, and Environmental Conditions.</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Realme GT Neo 5 | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-note-30-vip-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Note 30 VIP.</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtubing-green-magic-ideas-that-come-to-life/"><u>In 2024, Youtubing Green Magic – Ideas That Come to Life</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/sprachweiterentwicklung-zahlreim-fur-die-ersten-100-deutsche/"><u>Sprachweiterentwicklung: Zählreim Für Die Ersten 100 Deutsche</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unprecedented-engagement-reaching-for-a-million-audience/"><u>Unprecedented Engagement Reaching for a Million Audience</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/visual-virtuosos-questions-addressed/"><u>Visual Virtuosos Questions Addressed</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-mastering-snapchats-photo-alterations-a-step-by-step-guide/"><u>[New] 2024 Approved Mastering Snapchat's Photo Alterations A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/asterclass-in-glamour-beauty-tutorials-for-all-for-2024/"><u>[New] Masterclass in Glamour Beauty Tutorials for All for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-revolutionizing-reality-expertly-reviewed-peripherals-for-2024/"><u>[New] Revolutionizing Reality Expertly Reviewed Peripherals for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-hurry-hoarding-images-and-intonations/"><u>[Updated] 2024 Approved Hurry Hoarding Images & Intonations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-best-ways-to-captivate-an-audience-on-snapchat/"><u>[Updated] 2024 Approved The Best Ways to Captivate an Audience on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-instant-recovery-of-vanished-visuals/"><u>[Updated] In 2024, Instant Recovery of Vanished Visuals</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-understanding-your-absence-on-snapchat/"><u>[Updated] In 2024, Understanding Your Absence on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-installing-snapchat-a-mac-owners-handbook-for-2024/"><u>[Updated] Installing Snapchat A Mac Owner's Handbook for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-hasten-recovering-deleted-snaps/"><u>2024 Approved Hasten Recovering Deleted Snaps</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-vivo-t2-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Vivo T2 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210137065-9781788176163-letters-to-a-starseed/"><u>Letters to a Starseed | Free Book</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-poco-f5-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Poco F5 5G Auto Does Not Work | Dr.fone</u></a></li>
 </ul></div>
 

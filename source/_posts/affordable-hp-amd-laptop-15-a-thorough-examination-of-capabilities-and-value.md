@@ -1,7 +1,7 @@
 ---
 title: Affordable HP AMD Laptop (15) - A Thorough Examination of Capabilities & Value
-date: 2024-10-24T12:04:20.593Z
-updated: 2024-10-24T16:47:22.454Z
+date: 2024-10-29T23:44:44.915Z
+updated: 2024-10-31T00:11:18.332Z
 categories:
   - BestProducts
 description: This Article Describes Affordable HP AMD Laptop (15) - A Thorough Examination of Capabilities & Value
@@ -63,13 +63,6 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -79,10 +72,10 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -102,13 +95,20 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: It makes a difference
 
@@ -124,18 +124,24 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: It’s very affordable
 
@@ -143,14 +149,14 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -196,17 +202,20 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-discover-two-hands-on-approaches-to-personalize-snapchat-audio/"><u>[New] 2024 Approved Discover Two Hands-On Approaches to Personalize Snapchat Audio</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-optimizing-your-snapchat-ads-for-maximum-monetization/"><u>[New] 2024 Approved Optimizing Your Snapchat Ads for Maximum Monetization</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snapchat-strategies-the-guide-to-biz-marketing-mastery/"><u>[Updated] 2024 Approved Snapchat Strategies The Guide to Biz Marketing Mastery</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/buying-guide-in-depth-faqs-on-winx-dvd-video-editing-suite/"><u>Buying Guide: In-Depth FAQs on WinX DVD Video Editing Suite</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-oppo-a78-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Oppo A78 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/how-to-record-screen-with-panopto-screen-recorder-for-2024/"><u>How To Record Screen With Panopto Screen Recorder for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-oppo-k11x-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Oppo K11x Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-from-novice-to-pro-the-essentials-in-zooming-for-youtube-broadcasts/"><u>In 2024, From Novice to Pro The Essentials in Zooming for YouTube Broadcasts</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/mastering-the-art-of-pip-a-comprehensive-guide-to-creating-your-own-picture-in-picture-videos/"><u>Mastering the Art of PiP: A Comprehensive Guide to Creating Your Own Picture-in-Picture Videos</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/next-level-vfx-gear-for-the-eco-savvy-for-2024/"><u>Next-Level VFX Gear for the Eco-Savvy for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/tiktok-vs-snapchat-a-comprehensive-comparison-guide/"><u>TikTok Vs. Snapchat A Comprehensive Comparison Guide</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshoot-and-stop-bluestacks-crashing-in-just-5-steps/"><u>Troubleshoot and Stop BlueStacks Crashing in Just 5 Steps</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-concept-to-click-an-in-depth-look-at-gif-memes/"><u>[New] From Concept to Click An In-Depth Look at GIF Memes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-next-gen-tracker-seamless-camera-movement-coordination/"><u>[New] Next-Gen Tracker Seamless Camera Movement Coordination</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unleashing-widespread-engagement-on-facebook/"><u>[New] Unleashing Widespread Engagement on Facebook</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-animationpros-complete-guide-24/"><u>[Updated] 2024 Approved AnimationPros Complete Guide '24</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlocking-the-secrets-of-facebooks-live-feature/"><u>[Updated] In 2024, Unlocking the Secrets of Facebook's Live Feature</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-itop-screen-recorder-essential-or-excessive-in-2024/"><u>[Updated] ITop Screen Recorder - Essential or Excessive, In 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-guide-to-locating-vanished-eyes-only-images-on-snapchat/"><u>2024 Approved Guide to Locating Vanished Eyes-Only Images on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-snapchats-own-creativity-lab-inspire-over-a-hundred-private-stories-with-original-titles/"><u>2024 Approved Snapchat's Own Creativity Lab Inspire over a Hundred Private Stories with Original Titles</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-guide-to-never-ending-snapstreaks/"><u>2024 Approved The Ultimate Guide to Never-Ending Snapstreaks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/decoding-social-media-analyzing-tiktok-and-snapchat-for-2024/"><u>Decoding Social Media Analyzing TikTok & Snapchat for 2024</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-samsung-galaxy-f34-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Samsung Galaxy F34 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/expert-advice-efficient-screen-recording-of-snapchat-for-2024/"><u>Expert Advice Efficient Screen Recording of Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/generating-income-with-every-swipe-up-for-2024/"><u>Generating Income with Every Swipe Up for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-sonic-steps-to-better-snapchat-videos/"><u>In 2024, Sonic Steps to Better Snapchat Videos</u></a></li>
+<li><a href="https://techidaily.com/quick-and-easy-brother-printer-installation-tips-for-beginners/"><u>Quick and Easy Brother Printer Installation Tips for Beginners</u></a></li>
 </ul></div>
 

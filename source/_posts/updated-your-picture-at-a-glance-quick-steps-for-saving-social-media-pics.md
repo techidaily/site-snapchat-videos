@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Your Picture at a Glance  Quick Steps for Saving Social Media Pics\""
-date: 2024-10-10T16:01:35.910Z
-updated: 2024-10-13T17:02:42.084Z
+date: 2024-10-24T02:23:12.039Z
+updated: 2024-10-31T08:14:57.895Z
 tags:
   - ai video
   - ai snapchat
@@ -45,15 +45,22 @@ Step2 Among all the snaps, select any snap that you want to send. Then, tap on t
 
 ![tap on three dots](https://images.wondershare.com/filmora/article-images/2022/11/save-snaps-to-camera-roll-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 After selecting the three-dot icon, tap on the "Export or Send Snap" option. Now under the heading of "Share Elsewhere," tap on the "Download" icon, which will instantly export the snap to your camera roll.
 
 ![choose export or send snap option](https://images.wondershare.com/filmora/article-images/2022/11/save-snaps-to-camera-roll-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Save Multiple Snaps to Camera Roll at Once
@@ -70,13 +77,6 @@ Step3 Under the heading of "Share Elsewhere," tap on the "Download" icon. This w
 
 ![tap on the download icon](https://images.wondershare.com/filmora/article-images/2022/11/save-snaps-to-camera-roll-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How To Change Where Photos Are Saved in Snapchat
 
 Some people like to save the phone's storage by saving the snaps to memories. If you prefer saving the snaps in memories instead of the camera roll, you can save the phone's storage space. Conversely, some people like to export their snaps to the camera roll if multiple people use their Snapchat.
@@ -86,13 +86,6 @@ For privacy matters, people like to save the snaps to the camera roll only. If y
 Step1 Head to your Snapchat and tap on the Profile icon displayed in the top left corner. From there, select the "Settings" icon to proceed.
 
 ![open snapchat settings](https://images.wondershare.com/filmora/article-images/2022/11/save-snaps-to-camera-roll-8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 On the settings menu, locate the option called "Memories." Now on the new menu, select the "Save Button" given under the section of "Save Destinations."
 
@@ -138,16 +131,16 @@ Step1 Open your Snapchat and swipe up from the bottom. Head to the Camera Roll s
 
 ![access camera roll](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 After selecting a particular photo or video, hit the "Arrow" icon. Afterward, tap on the "My Story" option to create a story. For confirmation, press the "Arrow" icon again. This will create a Snapchat story instantly from your Camera Roll.
 
 ![tap on arrow icon](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Backup your Camera Roll to Snapchat without Creating Stories
 
@@ -157,22 +150,22 @@ Step1 After opening your Snapchat app, open your Memories by swiping up. Proceed
 
 ![open camera roll pictures](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Once you have selected the picture, choose the "Create Story" option. Afterward, tap on the "Save Story" option, which will save the camera roll picture in the Memories section.
 
 ![press save story button](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Check Your Backup Progress
@@ -184,15 +177,22 @@ Step1 Once you have opened your Snapchat, tap on your Bitmoji icon. From there, 
 ![open snapchat settings](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Scroll down a little to find the option "Memories." Afterward, you can see the option "Backup Progress." If you can see the word "Complete," it means that your Memories are backed up completely. If not, connect your phone to a stable Wi-Fi connection.
 
 ![check the backup progress](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Turn On the Smart Backup
 
@@ -202,24 +202,18 @@ Step1 After opening Snapchat, head to its "Settings." In the Settings menu, loca
 
 ![choose memories option](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-7.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 After tapping on Memories, you can see various options. Among multiple options, turn on the toggle of "Smart Backup." Thus, Snapchat will automatically back up your Memories through this activated feature.
 
 ![enable the smart backup](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-8.jpg)
 
 ## Part 5: FAQs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How to Backup Memories to Camera Roll on Snapchat?
 
@@ -258,18 +252,17 @@ Snapchat allows you to save the captured pictures and videos in their Memories. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-from-simple-scenes-advanced-techniques-for-snapchat-edits/"><u>[New] 2024 Approved From Simple Scenes Advanced Techniques for Snapchat Edits</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-add-crop-and-edit-music-to-canva-video/"><u>[New] How To Add, Crop And Edit Music To Canva Video?</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-maintain-your-memories-android-plus-mac-video-preservation/"><u>[New] In 2024, Maintain Your Memories Android + Mac Video Preservation</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-excellent-audio-capture-on-demand/"><u>[Updated] In 2024, Excellent Audio Capture on Demand</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-simply-turn-off-your-insta-tv/"><u>[Updated] In 2024, Simply Turn Off Your Insta TV</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-nostalgic-snapshots-from-your-camera-roll-on-snapchat/"><u>[Updated] Nostalgic Snapshots From Your Camera Roll on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-entrepreneurs-roadmap-turning-snapchat-into-a-profitable-venture-for-2024/"><u>[Updated] The Entrepreneur's Roadmap Turning Snapchat Into a Profitable Venture for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-superior-visual-treatment-applying-filters-to-videos/"><u>2024 Approved Superior Visual Treatment Applying Filters to Videos</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-from-your-apple-iphone-11-pro-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card from Your Apple iPhone 11 Pro Apple ID and Apple Pay</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-screen-sharing-made-simple-learn-phonescreen-recording-with-snapchat/"><u>In 2024, Screen Sharing Made Simple Learn Phonescreen Recording with Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-snapchats-hidden-content-finding-and-restoring-photos/"><u>In 2024, Snapchat's Hidden Content Finding and Restoring Photos</u></a></li>
-<li><a href="https://techtrends.techidaily.com/maximizing-performance-clearing-unused-files-in-windows-ten/"><u>Maximizing Performance: Clearing Unused Files in Windows 지급판 (Ten)</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/turbocharge-your-photos-windows-11-edition/"><u>Turbocharge Your Photos Windows 11 Edition</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-craft-the-perfect-gif-message-in-snapchat-easy-steps-for-2024/"><u>[New] Craft the Perfect Gif Message in Snapchat [Easy Steps] for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-from-novice-to-pro-becoming-a-boomerang-connoisseur-on-snapchat/"><u>[New] In 2024, From Novice to Pro Becoming a Boomerang Connoisseur on Snapchat</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-step-by-step-for-attaching-tunes-in-instagram-media/"><u>[Updated] In 2024, Step-by-Step for Attaching Tunes in Instagram Media</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-maximize-impact-on-snapchat-with-these-15-strategies/"><u>[Updated] Maximize Impact on Snapchat With These 15 Strategies</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/budget-friendly-whitescape-tech-enthusiasts/"><u>Budget-Friendly Whitescape Tech Enthusiasts</u></a></li>
+<li><a href="https://driver-error.techidaily.com/easy-instructions-on-how-to-fresh-install-driver-packs-for-the-hp-envy-laptop-gen89-models/"><u>Easy Instructions on How to Fresh Install Driver Packs for the HP ENVY Laptop Gen8/9 Models</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/freelancers-dream-top-free-3d-text-psd-arsenal-for-2024/"><u>Freelancer’s Dream Top FREE 3D Text PSD Arsenal for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-use-device-manager-to-update-drivers-in-windows-10-by-drivereasy-guide/"><u>How to use Device Manager to update drivers in Windows 10</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-below-is-a-get-starting-guide-for-wevideo-follow-it-to-easily-create-videos-online/"><u>New Below Is a Get-Starting Guide for WeVideo. Follow It to Easily Create Videos Online</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-blue-band-promise-made-easy-snapping-strategies/"><u>The Blue Band Promise Made Easy Snapping Strategies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-comprehensible-guide-to-augmented-snap-editing/"><u>The Comprehensible Guide to Augmented Snap Editing</u></a></li>
 </ul></div>
 
