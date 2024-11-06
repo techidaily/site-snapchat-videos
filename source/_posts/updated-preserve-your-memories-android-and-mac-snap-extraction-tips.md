@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Preserve Your Memories  Android & Mac Snap Extraction Tips\""
-date: 2024-10-30T01:09:21.229Z
-updated: 2024-10-31T00:54:00.764Z
+date: 2024-11-04T00:32:35.566Z
+updated: 2024-11-05T22:05:45.342Z
 tags:
   - ai video
   - ai snapchat
@@ -64,27 +64,20 @@ thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f
 
 ![snapchat quicktime](https://images.wondershare.com/filmora/article-images/snapchat-quiktime.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2. This will make your Mac’s camera act as the primary camera/recording device. To turn the iPhone as the recording device, go to the QuickTime screen and tap the ‘downward arrow’ button adjacent to the record button. The iPhone will be available under both the Camera and Microphone section, choose it for both the options.
 
 ![snapchat record](https://images.wondershare.com/filmora/article-images/snapchat-record.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3. You’ll now notice that your iPhone’s screen has been mirrored with your Mac computer.
 4. Now, on your iPhone, go to Snapchat and browse the inbox. Subsequently, on your Mac, tap the ‘Record’ button and then start viewing the snaps on your iPhone. QuickTime will record everything from the snaps and save it on your computer.
 5. After you’re done with recording, tap the ‘Record’ button again to stop it. Lastly, go to ‘File’ and click ‘Save’, the file format to which the file will be saved is .mov which is generally supported by majority of movie players.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to save Snapchat videos on Android
 
@@ -97,15 +90,28 @@ thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f
 
 ![snapchat az screen recorder](https://images.wondershare.com/filmora/article-images/snapchat-az-screen-recorder.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3. Stop the recording by tapping the ‘Record’ button again.
 
  Note: When saving Snapchat videos via this method, Snapchat is unable to trace that the video or stories are being recorded. Thereby, you save the Snapchat stories without even notifying the uploader.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to save Snapchat videos to your Phone
@@ -122,24 +128,18 @@ thumbnail: https://thmb.techidaily.com/a6ef7d238dd7bb214a3984e4799089ad86b5e4b6f
 
 4. If you forgot to save it before posting as a story, then go to the ‘Stories’ tab and click on the three vertical dots next to ‘My Story’ and select the video. Click the ‘Save’ button next to it to save Snapchat videos to your mobile.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  It is not impossible to save Snapchat videos to your Mac or Android phone. In fact, you just need to learn the right way that suits you. Be it through the apps to save Snapchat videos and stories or taking screenshots in ‘Airplane’ mode, you got to be quick and save what you like.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -156,22 +156,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-quick-save-techniques-for-snapchat-memories/"><u>[New] 2024 Approved Quick Save Techniques for Snapchat Memories</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-invisible-snapshotting-hidden-image-recording-on-snapchat/"><u>[New] In 2024, Invisible Snapshotting Hidden Image Recording on Snapchat</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-top-mac-speech-to-text-apps-youre-not-aware-of/"><u>[New] Top Mac Speech-to-Text Apps You're Not Aware Of</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-quick-and-clever-sharing-gifs-on-snapchat-made-simple/"><u>[Updated] 2024 Approved Quick & Clever Sharing GIFs on Snapchat Made Simple</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-elevating-snaps-to-animation-the-cartoonists-playbook/"><u>[Updated] Elevating Snaps to Animation The Cartoonist’s Playbook</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-improve-your-work-efficiency-leveraging-snap-photography-techniques-for-2024/"><u>[Updated] Improve Your Work Efficiency Leveraging Snap Photography Techniques for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-technical-journey-to-capture-snapchat-on-mobile/"><u>[Updated] In 2024, The Technical Journey to Capture Snapchat On Mobile</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-iphones-simple-guide-for-efficient-screen-recording/"><u>[Updated] IPhone's Simple Guide for Efficient Screen Recording</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-secrets-of-snapsharing-creating-invisible-chronicles-for-2024/"><u>[Updated] Secrets of Snapsharing Creating Invisible Chronicles for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-iphone-lens-mastery-unleashing-creativity/"><u>2024 Approved IPhone Lens Mastery - Unleashing Creativity</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-hitman-3-pc-crashes-essential-troubleshooting-guide-for-gamers/"><u>Fixing Hitman 3 PC Crashes: Essential Troubleshooting Guide for Gamers</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-beneath-the-surface-a-deeper-look-at-snapchat-emojis/"><u>In 2024, Beneath the Surface A Deeper Look at Snapchat Emojis</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-best-free-public-domain-pubg-screen-shots/"><u>In 2024, Best Free Public Domain PUBG Screen Shots</u></a></li>
-<li><a href="https://win-dash.techidaily.com/installing-the-latest-drivers-for-your-qualcomm-atheros-ar956x-wireless-network-adapter/"><u>Installing the Latest Drivers for Your Qualcomm Atheros AR956x Wireless Network Adapter</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-the-best-automatic-transcription-software/"><u>New The Best Automatic Transcription Software</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782360-9781591438076-slave-species-of-the-gods-2nd-ed/"><u>Slave Species of the Gods (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-infinix-note-30-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Infinix Note 30 5G Device</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-step-by-step-manual-upside-down-movies-in-snap/"><u>[New] 2024 Approved Step-by-Step Manual Upside Down Movies in Snap</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-disconnect-on-snapchat-are-they-blocked/"><u>[New] 2024 Approved The Disconnect on Snapchat Are They Blocked?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-top-10-music-videos-on-facebook/"><u>[New] In 2024, Top 10 Music Videos on Facebook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-techniques-to-save-snapchat-videos-on-phones-for-2024/"><u>[New] Techniques to Save Snapchat Videos on Phones for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-best-video-grabbers-for-mac/"><u>[Updated] 2024 Approved Best Video Grabbers for Mac</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-differentiate-with-style-on-snapchat-top-120plus-narratives-for-your-private-stories/"><u>[Updated] 2024 Approved Differentiate with Style on Snapchat Top 120+ Narratives for Your Private Stories</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-step-by-step-guide-to-pc-based-live-broadcasts-on-tiktok/"><u>[Updated] 2024 Approved Step-by-Step Guide to PC-Based Live Broadcasts on TikTok</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-the-ultimate-playbook-techniques-to-archive-your-unique-vr-adventures/"><u>[Updated] In 2024, The Ultimate Playbook Techniques to Archive Your Unique VR Adventures</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-transferring-snapshots-from-social-platform-to-device/"><u>[Updated] Step-by-Step Transferring Snapshots From Social Platform to Device</u></a></li>
+<li><a href="https://win-blog.techidaily.com/m4r-m4a-movavi/"><u>網路直接免費移轉 M4R 到 M4A - 利用 Movavi 的音頻格式轉換工巧</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/elevate-social-media-impact-mastering-snapchats-boomerang-art-for-2024/"><u>Elevate Social Media Impact Mastering Snapchat's Boomerang Art for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-xiaomi-civi-3-disney-100th-anniversary-edition-by-drfone-android/"><u>How to Bypass FRP on Xiaomi Civi 3 Disney 100th Anniversary Edition?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/how-to-seamlessly-add-snap-camera-to-microsoft-chats-for-2024/"><u>How To Seamlessly Add Snap Camera to Microsoft Chats for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-crafting-success-steps-to-thriving-as-a-designer/"><u>In 2024, Crafting Success Steps to Thriving as a Designer</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-innovative-approaches-to-keeping-your-snaps-connected/"><u>In 2024, Innovative Approaches to Keeping Your Snaps Connected</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-lg-distribution-networks-critical-information-you-should-know/"><u>Mastering LG Distribution Networks: Critical Information You Should Know</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/why-ai-powered-content-detection-systems-fail-addressing-the-serious-issue/"><u>Why AI-Powered Content Detection Systems Fail: Addressing the Serious Issue</u></a></li>
 </ul></div>
 

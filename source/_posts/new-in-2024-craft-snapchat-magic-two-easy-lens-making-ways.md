@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Craft Snapchat Magic  Two Easy Lens Making Ways\""
-date: 2024-10-29T16:44:53.251Z
-updated: 2024-10-31T04:24:15.184Z
+date: 2024-10-29T22:06:01.888Z
+updated: 2024-11-05T22:50:36.547Z
 tags:
   - ai video
   - ai snapchat
@@ -56,10 +56,10 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Use Lens Studio
@@ -85,10 +85,10 @@ There are other tools accessible from the Resources panel. You can use these too
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. Preview the Snapchat Lens You Create
@@ -105,28 +105,28 @@ The great thing about this application is that you can preview the lens before y
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -143,18 +143,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-mastering-snapchats-photo-alterations-a-step-by-step-guide/"><u>[New] 2024 Approved Mastering Snapchat's Photo Alterations A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/asterclass-in-glamour-beauty-tutorials-for-all-for-2024/"><u>[New] Masterclass in Glamour Beauty Tutorials for All for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-revolutionizing-reality-expertly-reviewed-peripherals-for-2024/"><u>[New] Revolutionizing Reality Expertly Reviewed Peripherals for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-hurry-hoarding-images-and-intonations/"><u>[Updated] 2024 Approved Hurry Hoarding Images & Intonations</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-best-ways-to-captivate-an-audience-on-snapchat/"><u>[Updated] 2024 Approved The Best Ways to Captivate an Audience on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-instant-recovery-of-vanished-visuals/"><u>[Updated] In 2024, Instant Recovery of Vanished Visuals</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-understanding-your-absence-on-snapchat/"><u>[Updated] In 2024, Understanding Your Absence on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-installing-snapchat-a-mac-owners-handbook-for-2024/"><u>[Updated] Installing Snapchat A Mac Owner's Handbook for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-hasten-recovering-deleted-snaps/"><u>2024 Approved Hasten Recovering Deleted Snaps</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-vivo-t2-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Vivo T2 5G Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210137065-9781788176163-letters-to-a-starseed/"><u>Letters to a Starseed | Free Book</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-poco-f5-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Poco F5 5G Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-the-best-cameras-for-youtube-from-beginners-to-professionals/"><u>[New] In 2024, The Best Cameras for YouTube From Beginners to Professionals</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-seamless-integration-getting-snapchat-on-macos/"><u>[Updated] 2024 Approved Seamless Integration Getting Snapchat on macOS</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-unending-chats-strategies-for-continuous-snapstreaks/"><u>[Updated] 2024 Approved Unending Chats - Strategies for Continuous Snapstreaks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-virtual-gallery-combining-crescendos-with-clarity-for-2024/"><u>[Updated] Virtual Gallery Combining Crescendos with Clarity for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-powerdirector-unveiled-in-depth-review-and-users-handbook/"><u>2024 Approved PowerDirector Unveiled In-Depth Review & User's Handbook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-smart-strategies-for-profitable-snapchat-partnerships/"><u>2024 Approved Smart Strategies for Profitable Snapchat Partnerships</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/get-scribbling-in-windows-11-effortlessly/"><u>Get Scribbling in Windows 11 Effortlessly</u></a></li>
+<li><a href="https://network-issues.techidaily.com/guiding-users-through-screen-recovery-on-laptops/"><u>Guiding Users Through Screen Recovery on Laptops</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-secrets-of-negative-video-spinning-in-snapchat/"><u>In 2024, The Secrets of Negative Video Spinning in Snapchat</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transform-your-snapchat-pics-with-playful-cartoon-lens/"><u>In 2024, Transform Your Snapchat Pics with Playful Cartoon Lens</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/master-your-message-15-powerful-snap-ideas-for-2024/"><u>Master Your Message 15 Powerful Snap Ideas for 2024</u></a></li>
+<li><a href="https://techidaily.com/step-by-step-tutorial-on-enablingdisabling-hibernate-mode-for-windows-10-users/"><u>Step-by-Step Tutorial on Enabling/Disabling Hibernate Mode for Windows 10 Users</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-transform-your-videos-with-avs-mac-editor-for-2024/"><u>Updated Transform Your Videos with AVS Mac Editor for 2024</u></a></li>
 </ul></div>
 
