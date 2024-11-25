@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Stand Out in the Crowd  Top 15 Innovative Snapchat Posts\""
-date: 2024-07-25T14:39:36.171Z
-updated: 2024-07-26T14:39:36.171Z
+date: 2024-11-20T16:29:53.174Z
+updated: 2024-11-25T16:57:58.856Z
 tags:
   - ai video
   - ai snapchat
@@ -24,8 +24,9 @@ However, how to make your Snaps stand out and make sure your Snaps and Snapchat 
 In this article, we're going to give you some **ideas to post on Snapchat**. From generating inspiring ideas to using Snapchat for better marketing, we aim to provide you with guidance on the whole walkthrough of shining on Snapchat.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1\. Choosing Creative Topics for Snapchat Video
 
 On the top of that, we will start with coming up with creative ideas for your Snapchat videos. If you're struggling to develop **ideas to post on Snapchat**, don't worry - we've got you covered.
@@ -33,8 +34,9 @@ On the top of that, we will start with coming up with creative ideas for your Sn
 Below we've provided some tips for your Snapchat videos:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Idea 1\. Conduct Interviews Via Snaps
 
 If you are running your Snapchat like a YouTube channel, conducting interviews on Snapchat is a perfect way to get quick, candid responses from your interviewees. To make it more fun, captivating, and engaging, you can also use captivating Snaps to add a personal touch.
@@ -55,23 +57,18 @@ To make sure your snap Q&A goes off without a hitch, be sure to:
 
 ![snapchat q a session via stories](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-qa-session-via-stories.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Idea 3\. Fun Tidbits
 
 Snapchat is an excellent platform to get your audience engaged with your brand by creating fun tidbits to get more traffic.
 
 You can create short videos or images designed to be entertaining and informative. For example, Amazon's Snapchat posts stories of their employees carving pumpkins and posting them to their followers. This is a creative and fun solution to reach new customers and create a brand personality.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![amazon tidbit on snapchat](https://images.wondershare.com/filmora/article-images/2022/11/amazon-tidbit-on-snapchat.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Idea 4\. Behind-The-Scenes Footage
 
 Sharing BTS footage of you and your team hard at work can be interesting and informative for your followers. This will give them a look at the inner workings of your company and how you create your products or services. This type of content can also be used to show off your team's personality and culture.
@@ -84,9 +81,6 @@ We have listed why Behind-the-scenes footages are useful for your reference:
 
 There are numerous ways to use BTS footage to boost your business. For example, you can use it to create a more personal connection with your customers, increase transparency and build trust.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![taco bell behind the scene to their meetups](https://images.wondershare.com/filmora/article-images/2022/11/taco-bell-behind-the-scene-to-their-meetups.jpg)
 
 ## Part 2\. Snapchat Post Ideas for Content Creation
@@ -103,10 +97,11 @@ Title cards are simply images with the text you can insert into your story to he
 
 For this, you can take a snap of a wall or perhaps block your camera to get a black screen and then paste your text on the picture. You can also play with the font size, style, or color to create engaging title cards.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![title cards for snapchat stories](https://images.wondershare.com/filmora/article-images/2022/11/title-cards-for-snapchat-stories.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Idea 2\. Adding Music To Your Video
 
@@ -132,6 +127,10 @@ However, you can only target an area between 20,000 and 5 million square feet. M
 
 ![snapchat on demand geo filters](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-on-demand-geo-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### 2\. With AR/VR filters
 
 We all love filters, don't we? Whether it's a dog filter or a flower crown, filters add a touch of fun and personality to our photos and videos. With the advent of augmented reality (AR) and virtual reality (VR) technology, filters are getting even more creative and immersive.
@@ -140,9 +139,6 @@ Snapchat's AR/VR filters are some of the most fun and innovative on the market, 
 
 For example, Dior created a Men Saddle Belt filter to promote its product and in turn, gained more sales, brand recognition as well as engagement.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![dior filter on snapchat](https://images.wondershare.com/filmora/article-images/2022/11/dior-filter-on-snapchat.jpg)
 
 ##### 3\. Using Filters In Your Snaps Or Stories
@@ -178,6 +174,10 @@ A Quick Guide:
 1. [1\. Techniques for Better Marketing On Snapchat](#part3-1)
 2. [2\. Ideas for Better Promotion on Snapchat](#part3-2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Techniques for Better Marketing On Snapchat
 
 Here are some techniques to create an engaging marketing campaign on Snapchat:
@@ -197,9 +197,6 @@ Since you cannot add clickable links to your snaps, using a shortened URL is an 
 
 To get started, you need to find a URL shortener service such as [bitly.com](https://bitly.com/) and then begin sharing your shortened URLs with your Snapchat followers. You can add them to your snaps or post them in your story.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### Idea 3\. Sneak Peeks Of New Products
 
 Giving your followers/customers a sneak peek of new products before they hit the shelves can excite them about your brand. This not only builds anticipation and excitement but also gives your fans a chance to be the first to know how and when to get their hands on your new products.
@@ -208,9 +205,6 @@ You can provide sneak peeks of new products on Snapchat in a number of ways. For
 
 Whatever approach you take, ensure that you're providing value to your audience. They should feel like they're getting something special by having a sneak peek of your new products.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Idea 4\. Attach Your Username, Username URL, Or Snapchat Code
 
 To get more audiences and followers on Snapchat, you can also try attaching your username, username URL, or Snapcode to your stories. These three approaches can help your customers find your account or add you as a friend on Snapchat.
@@ -221,22 +215,20 @@ To share your Snapcode, simply let others scan the code via their phone's camera
 
 ![share snapcode or profile url](https://images.wondershare.com/filmora/article-images/2022/11/share-snapcode-or-profile-url.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Idea 5\. Publish Your Snaps To Other Platforms
 
 Do you want to get more eyes on your snaps on Snapchat? If so, you should consider publishing them on other platforms. Doing this can help you can reach a wider audience and get more people interested in your brand.
 
 You can download your Snaps and repost them on other platforms like Instagram, Facebook, Twitter, and more. To learn more, read: [How to Save Snapchat Videos with Apps on Android and Mac.](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Ideas for Better Promotion on Snapchat
 
 Here are some quick ideas to post better promotional content on Snapchat:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Idea 1\. Run Snapchat Ads
 
 As a business, you always want to look for new ways to reach your target audience. With Snapchat being the 12th most popular social media platform today, it's definitely worth considering running ads on Snapchat.
@@ -251,8 +243,9 @@ Let's look into benefits of running ads on Snapchat:
 ![ads on snapchat](https://images.wondershare.com/filmora/article-images/2022/11/ads-on-snapchat.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Idea 2\. Coupon
 
 You can quickly promote your business on Snapchat by offering coupons and use them to encourage customers to make a purchase or as loyalty rewards for existing customers.
@@ -268,13 +261,9 @@ Step3 Add the coupon code or task to the Snap and share your coupon with your fo
 ![coupons on snapchat](https://images.wondershare.com/filmora/article-images/2022/11/coupons-on-snapchat.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Idea 3\. Host A Contest Or Giveaway
 
 You can also promote your business/brand on Snapchat by hosting a contest or giveaway. This can help you not only reach more people but also get them talking about your brand.
@@ -321,15 +310,13 @@ By following the tips, techniques, and ideas in this guide, you can create Snapc
      data-ad-slot="1223367746"></ins>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## BuzzFeed Gurus Flashing with Snapchat
 
 # Snapchat Cameos: Catch Up with the Trendiest Trick
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -448,9 +435,6 @@ Here we understand what is the **Snapchat cameos** feature that one can find and
 
 So go ahead and be creative with your expressions. You can add a light note to your messages, create funny pics and videos and bring about a comic look and feel to a conversation. It is also a great way to express how you feel without having to be serious about it. This is especially useful if you wish to let someone know how you feel but you are unsure of what their reactions would be.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -513,9 +497,6 @@ Here we understand what is the **Snapchat cameos** feature that one can find and
 
 So go ahead and be creative with your expressions. You can add a light note to your messages, create funny pics and videos and bring about a comic look and feel to a conversation. It is also a great way to express how you feel without having to be serious about it. This is especially useful if you wish to let someone know how you feel but you are unsure of what their reactions would be.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -599,7 +580,18 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-comprehensive-manual-for-flawless-snapchat-boomers/"><u>[New] 2024 Approved The Comprehensive Manual for Flawless Snapchat Boomers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-premier-top-selections-affordable-sbd-applications/"><u>[New] In 2024, Premier Top Selections Affordable SBD Applications</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-technical-journey-to-capture-snapchat-on-mobile/"><u>[New] In 2024, The Technical Journey to Capture Snapchat On Mobile</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-lens-language-speaking-visually-with-snapchat-filters-for-2024/"><u>[New] Lens Language Speaking Visually with Snapchat Filters for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-step-by-step-transferring-snapshots-from-social-platform-to-device-for-2024/"><u>[New] Step-by-Step Transferring Snapshots From Social Platform to Device for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-tutorial-on-editing-youtube-videos/"><u>[New] The Ultimate Tutorial on Editing YouTube Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-tiktok-vs-snapchat-a-comprehensive-comparison-guide-for-2024/"><u>[Updated] TikTok Vs. Snapchat A Comprehensive Comparison Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-blueprinting-engaging-content-layouts-on-youtube/"><u>2024 Approved Blueprinting Engaging Content Layouts on YouTube</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-apple-id-from-apple-iphone-13-mini-without-password-by-drfone-ios/"><u>In 2024, How to Remove Apple ID from Apple iPhone 13 mini without Password?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-chart-selection-with-filters-in-ms-excel-tips-and-tricks/"><u>Mastering Chart Selection with Filters in MS Excel: Tips & Tricks</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721266352575-no-access-to-your-phone-due-to-forgotten-password-here-how-to-reset-it/"><u>No Access to Your Phone Due to Forgotten Password? Here How to Reset It!</u></a></li>
+</ul></div>
 

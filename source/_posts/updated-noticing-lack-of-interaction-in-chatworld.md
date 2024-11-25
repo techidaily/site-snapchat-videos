@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Noticing Lack of Interaction in Chatworld"
-date: 2024-11-11T20:29:41.016Z
-updated: 2024-11-16T05:21:01.215Z
+date: 2024-11-18T16:40:13.932Z
+updated: 2024-11-25T17:19:32.053Z
 tags:
   - ai video
   - ai snapchat
@@ -53,13 +53,6 @@ You can snap someone you've spoken to in the past if you've previously interacte
 
 To see this list, just go to your profile & click on My Friends. If they don't show up, they may have blocked you. They might have canceled their account or disabled you from their Friends list.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4.Verify whether or not you can view their tales on the internet
 
 Searching for someone active on Instagram may need you to read their recent stories first. If you're unable to, you've probably been blocked.
@@ -120,31 +113,25 @@ Snapchat's blocking system differs from those other social media sites. The indi
 
 Being blocked on Snapchat, on the other hand, is a very other matter. This indicates that another person has unfriended you. Your most recent conversations with this individual may be hidden from view. You won't see them on your buddy list, but you may search for them if you know the username.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How can you know if someone on Snapchat has banned you?
 
 ### 1.Check your recent chats with them
 
 ![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 It's possible that the other user deleted their account or was barred if your recent conversations don't appear despite being preserved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2.Send them a message if you can
 
 You can snap someone you've spoken to in the past if you've previously interacted with them. If you notice a pending or grey indicator after sending it, they may have removed you from the contact list. 'Failed to send a message - Tap to try again' may indicate that you have been blocked. Snapchat, on the other hand, will display all of your messages as 'delivered,' even if you have been banned.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3.Check your list of Friends to see whether they're there
 
@@ -222,13 +209,6 @@ It's possible that the other user deleted their account or was barred if your re
 
 You can snap someone you've spoken to in the past if you've previously interacted with them. If you notice a pending or grey indicator after sending it, they may have removed you from the contact list. 'Failed to send a message - Tap to try again' may indicate that you have been blocked. Snapchat, on the other hand, will display all of your messages as 'delivered,' even if you have been banned.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.Check your list of Friends to see whether they're there
 
 To see this list, just go to your profile & click on My Friends. If they don't show up, they may have blocked you. They might have canceled their account or disabled you from their Friends list.
@@ -238,10 +218,7 @@ To see this list, just go to your profile & click on My Friends. If they don't s
 Searching for someone active on Instagram may need you to read their recent stories first. If you're unable to, you've probably been blocked.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5. Verify whether you can see their Snapchat rating
@@ -249,6 +226,10 @@ Searching for someone active on Instagram may need you to read their recent stor
 ![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
 
 Snapchat scores are only visible to friends. Otherwise, your Snapchat account has been suspended or terminated.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6. Use a separate account to do a name search
 
@@ -259,6 +240,10 @@ Snapchat hides the fact that someone has banned you from view. I really hope thi
 ### 7. Look for the person's username and full name
 
 ![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When you search for someone on Snapchat and they've banned you, you won't be able to find them. Searching for them should bring them up even if they've unfriended you on Facebook.
 
@@ -306,13 +291,6 @@ Being blocked on Snapchat, on the other hand, is a very other matter. This indic
 
 ![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 It's possible that the other user deleted their account or was barred if your recent conversations don't appear despite being preserved.
 
 ### 2.Send them a message if you can
@@ -331,20 +309,21 @@ Searching for someone active on Instagram may need you to read their recent stor
 
 ![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
 
-Snapchat scores are only visible to friends. Otherwise, your Snapchat account has been suspended or terminated.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Snapchat scores are only visible to friends. Otherwise, your Snapchat account has been suspended or terminated.
 
 ### 6. Use a separate account to do a name search
 
 It's possible they deactivated their account to ensure you can use a different account to search for their username if you don't find them there. If they do appear, you may be sure they blocked you after removing you.
 
 Snapchat hides the fact that someone has banned you from view. I really hope this information was useful to you in some manner. Approaching the individual who has obstructed you should be done with caution. Keep in mind why you were first barred, and attempt to avoid making the same error repeatedly.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7. Look for the person's username and full name
 
@@ -385,6 +364,10 @@ For macOS 10.12 or later
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Perfect Method for Saving Camera Images on Snapchat
 
@@ -424,16 +407,13 @@ Step1 Once you have opened your Snapchat, tap on your Bitmoji icon. From there, 
 
 ![open snapchat settings](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Scroll down a little to find the option "Memories." Afterward, you can see the option "Backup Progress." If you can see the word "Complete," it means that your Memories are backed up completely. If not, connect your phone to a stable Wi-Fi connection.
 
 ![check the backup progress](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Turn On the Smart Backup
 
@@ -442,6 +422,10 @@ A Smart Backup is an advanced option on Snapchat that lets you back up memories 
 Step1 After opening Snapchat, head to its "Settings." In the Settings menu, locate the option "Memories."
 
 ![choose memories option](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 After tapping on Memories, you can see various options. Among multiple options, turn on the toggle of "Smart Backup." Thus, Snapchat will automatically back up your Memories through this activated feature.
 
@@ -486,24 +470,16 @@ Snapchat allows you to save the captured pictures and videos in their Memories. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-peeling-back-layers-what-every-snapchat-emoji-hides/"><u>[New] 2024 Approved Peeling Back Layers What Every Snapchat Emoji Hides</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-engaging-students-the-power-of-youtube-in-education-for-2024/"><u>[New] Engaging Students The Power of YouTube in Education for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-melodic-marvels-device-spotlight/"><u>[New] Melodic Marvels Device Spotlight</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-secret-snapsnapping-techniques-unseen-screen-captures-for-2024/"><u>[New] Secret SnapSnapping Techniques Unseen Screen Captures for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-beyond-typography-decoding-the-subtext-of-snapchat-emojis-for-2024/"><u>[Updated] Beyond Typography Decoding the Subtext of Snapchat Emojis for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-restoring-lost-eyes-only-snapshots-on-snapchat/"><u>[Updated] Restoring Lost Eyes-Only Snapshots on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-seamless-path-integrating-your-social-photos-into-device-storage/"><u>[Updated] The Seamless Path Integrating Your Social Photos Into Device Storage</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-snapchat-checklist-for-engaging-content-for-2024/"><u>[Updated] The Ultimate Snapchat Checklist for Engaging Content for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-unveiling-hidden-potential-edit-wonders-on-snapchat-app-for-2024/"><u>[Updated] Unveiling Hidden Potential Edit Wonders on Snapchat App for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-bridging-the-gap-converting-snapchats-flash-into-files/"><u>2024 Approved Bridging the Gap Converting Snapchat's Flash Into Files</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/1728474568081-cf/"><u>CFカードの初期化後、どうやって情報を回復するか?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/enigmatic-strategy-for-impeccable-tiktok-profile-linking/"><u>Enigmatic Strategy for Impeccable TikTok Profile Linking</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Oppo Find N3 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-tecno-phantom-v-flip-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Tecno Phantom V Flip FRP</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-infuse-your-snap-with-japanese-pop-culture-the-anime-filter-tutorial/"><u>In 2024, Infuse Your Snap with Japanese Pop Culture The Anime Filter Tutorial</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-tecno-pova-5-pro-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Tecno Pova 5 Pro</u></a></li>
-<li><a href="https://article-tips.techidaily.com/inside-the-labyroud-of-vrs-latest-creations-for-2024/"><u>Inside the Labyroud of VR's Latest Creations for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/resolving-the-dll-not-found-and-missing-dll-issues-a-step-by-step-guide/"><u>Resolving the 'DLL Not Found' And 'Missing DLL' Issues: A Step-by-Step Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-to-overcome-stop-code-0x0000005c-halinitializationfailed-issues/"><u>Step-by-Step Guide to Overcome STOP Code 0X0000005C – HAL_INITIALIZATION_FAILED Issues</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-conquering-social-media-with-ig-videos-planning-an-optimal-strategy/"><u>[New] 2024 Approved Conquering Social Media with IG Videos Planning an Optimal Strategy</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-get-going-on-youtube-video-upload-tutorial-in-premiere-for-2024/"><u>[New] Get Going on YouTube Video Upload Tutorial in Premiere for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-leveraging-social-influence-a-guide-to-biz-success-on-snap-for-2024/"><u>[New] Leveraging Social Influence A Guide to Biz Success on Snap for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-seamless-social-media-posts-from-phone-to-instagram-for-2024/"><u>[New] Seamless Social Media Posts From Phone to Instagram for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unleashing-your-financial-potential-on-snapchat/"><u>[New] Unleashing Your Financial Potential on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-adding-social-media-magic-snapchat-to-your-mac/"><u>[Updated] Adding Social Media Magic Snapchat to Your Mac</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-how-to-send-gif-on-snapchat-stey-by-stey-guide/"><u>[Updated] In 2024, How to Send Gif on Snapchat [Stey-by-Stey Guide]</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-lift-run-dance-select-the-most-motivating-exercise-tracks/"><u>2024 Approved Lift, Run, Dance - Select the Most Motivating Exercise Tracks</u></a></li>
+<li><a href="https://media-tips.techidaily.com/easy-guide-streaming-multiple-video-formats-avi-mkv-etc-with-airplay/"><u>Easy Guide: Streaming Multiple Video Formats (AVI, MKV, Etc.) With AirPlay</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/swift-modification-youtube-aspect-ratio-on-mac-for-2024/"><u>Swift Modification YouTube Aspect Ratio on MAC for 2024</u></a></li>
 </ul></div>
 

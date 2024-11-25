@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Stealthy Sharing on Snapchat  The Perfect Tutorial\""
-date: 2024-07-25T14:40:09.015Z
-updated: 2024-07-26T14:40:09.015Z
+date: 2024-11-19T17:33:10.724Z
+updated: 2024-11-25T17:49:49.313Z
 tags:
   - ai video
   - ai snapchat
@@ -19,163 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/GMODQIsI915ixpaiTofmagG7Ki0=/400x300/fi
 
 # How to Make a Private Story on Snapchat: A Complete Guide
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-A private story is one that you share with your closest friends. Snapchat is a way to restrict the people who can see the story. Snapchat provides options on **how to make a private story on Snapchat** and share the same to a select few. With such a feature you have more control over who sees the content you publish. A Snapchat private story is easy to create, the only difference is how you send the video or story across to the people you choose. You can do so on the Snapchat application on an Android as well as on an iOS device. Here we explore how such a story can be created and published or posted privately.
-
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
-![Snapchat Name Ideas](https://images.wondershare.com/filmora/article-images/snapchat-name-ideas.jpg)
-
-* [Part 1: What Is a Private Story on Snapchat?](#part1)
-* [Part 2: How to Create a Private Story on Snapchat?](#part2)
-* [Part 3: Creative Private Story Names and Ideas for Snapchat](#part3)
-* [Part 4: Troubleshooting Tips: When Someone Hide Their Snapchat Stories from You](#part4)
-
-## What Is a Private Story on Snapchat?
-
-Stories are a term popular in Snapchat, to showcase images and videos for the last 24 hours. Stories can comprise photos as well as videos. You can post stories to your feed which you can view as well as your friends. These show your friends your different activities the day before. These exist for the next 24 hours within which you can replay them many times.
-
-There is a difference between ‘My Stories’ and ‘Private Stories’. When you record and post a video or a photo on your Snapchat account publicly, it is seen by all your contacts. On the other hand, if you wish to post a private story, you need to create a custom story. After you create a custom story, you can then post the same as a private one. Here you select the ones who would view the story. You choose the contacts who would view the post before publishing it. Another aspect is that no one else can add content to the private stories you post on Snapchat.
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How to Create a Private Story on Snapchat?
-
-To begin how to make a private story on Snapchat, here are the steps to follow:
-
-* [1.Log into Your Account.](#part5)
-* [2.Visit Your Profile Page](#part6)
-* [3.Select the Private Story option](#part7)
-* [4.Create the Story](#part8)
-* [5.Share with Your Select Friends](#part9)
-
-#### 1.Log into Your Account
-
-Start by logging in to your Snapchat account. In case you have been using the account often, it would be already logged in.
-
-#### 2.Visit Your Profile Page
-
-Click the ‘Open Your Profile’ section and tap on the profile icon. You will find the Snapchat private story thumbnail on the top left-hand corner of the app screen.
-
-#### 3.Select the Private Story option
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
-![Select Private Story Snapchat](https://images.wondershare.com/filmora/article-images/select-private-story-snapchat.jpg)
-
-You will find options such as ‘Private Story’ or ‘Custom Story’ to add in the ‘Stories’ section. You might be asked to confirm whether you wish to make a private story. Simply tap on ‘Private Story’ to get started.
-
-#### 4.Create the Story
-
-Start by adding photos or videos to your story. Tap on a rectangle icon with a plus sign on the bottom of the Snapchat screen. You will get the option to add a photo or video to your story. The feed will exist for the next 24 hours. You can even delete a snap from a story. Simply visit the ‘My Friends’ page and tap on the gear icon next to the story. Tap ‘Delete’ if you wish to remove a video or image. You can also edit or add tags or stickers to a video or story before sharing.
-
-#### 5.Share with Your Select Friends
-
-![Share Snapchat Private Story](https://images.wondershare.com/filmora/article-images/share-snapchat-private-story.jpg)
-
-Once your video or photos are ready for sharing, proceed to the ‘Send’ tab. Check off the circle next to ‘My Story’, ensuring that the feed will not be public. You can then choose friends from your contact list who would receive the Snapchat private story. Alternately, you could find the story in the ‘Stories’ section on your user page. Once the story is selected, tap on a recipient to whom you wish to share the private story. After you pick the people you wish to share the story with, hit the ‘Send’ button.
-
-Once you have chosen the recipients of your Snapchat private story, they will be able to see your private as well as public stories. In the iPhone, the application shows the videos as mixed up. For Android users, the stories can be differentiated. Also, the people who were not specified for receiving the private content will have no idea of the private stories created and shared with others.
-
-## [Creative Private Story Names and Ideas for Snapchat](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Since private stories are usually daily incidents that could be mundane, funny, or tragic, here are some quirky name ideas for the same:
-
-1.Work it out
-
-2.Got up on the wrong side of the bed today
-
-3.Cake anyone
-
-4.Waking up to coffee
-
-5.Monday mayhem
-
-6.Lazy
-
-7.WFH
-
-8.Just another day at work
-
-9.Mememe
-
-10.Blissful fun
-
-11.A night out with the ladies
-
-12.Boots for walking
-
-13.Christmas is here
-
-14.New food mantra
-
-15.Cheat day today
-
-16.Diet food anyone
-
-17.Soulful vibes
-
-18.Social distancing
-
-19.Snooze the alarm
-
-20.A hug in a mug
-
-To get creative, choose a name that would set the narrative or theme for your story. You could then add on photos and videos to showcase the theme.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Troubleshooting Tips: When Someone Hide Their Snapchat Stories from You
-
-**How to Know if Someone Hid Their Snapchat Story from You?**
-
-There is a way to find out whether someone is hiding their Snapchat stories from you. You can use someone else’s account to check if their stories are showing on their feed. You could also send a private snap to that person. If he or she answers the same quickly and yet, you do not get to see their stories that would mean that you are hidden contact in their list.
-
-You could also ask a common friend if they have even received stories and updates from that person. If the person’s stories are reaching others but not you, that means that they have hidden their stories from you.
-
-**Can You Hide Someone on Snapchat Without Them Knowing?**
-
-If you wish to hide someone but in a way that they do not find out, try the new muting function. This allows you to mute certain friends without them realizing the same. The feature is called ‘Do Not Disturb’ and it allows you to mute conversations that are one on one or come from groups. The feature is a new addition and is a useful one. You need not hide or block any contact in this case but simply silence notifications of their updates.
-
-To use this feature, all you need to do is tap on the group or the person you wish to silence. The popup menu would include ‘Settings’ and here you can select the option ‘Do Not Disturb’. You will not receive notifications from such conversations. However, you will still be able to access, check messages from such contacts as well as share your stories as well.
-
-This feature is a useful addition and you need not hide or block a contact to silence conversations from them. Hence, those people will also not get notified unlike when you block a contact. It allows you to see updates from them at your ease and convenience.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
-### Conclusion
-
-Snapchat is an attractive platform to get your daily moments the attention they deserve. You can create stories, private or with anyone else, and share them with selective people of your choice. The Snapchat private story option is great to keep your moments between your close friends or loved ones. Other features such as ‘Do Not Disturb’ allow you to silence notifications from friends or groups that you wish to check as per your convenience.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
 
 ##### Ollie Mattison
 
@@ -190,9 +34,6 @@ A private story is one that you share with your closest friends. Snapchat is a w
 * [Part 3: Creative Private Story Names and Ideas for Snapchat](#part3)
 * [Part 4: Troubleshooting Tips: When Someone Hide Their Snapchat Stories from You](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## What Is a Private Story on Snapchat?
 
 Stories are a term popular in Snapchat, to showcase images and videos for the last 24 hours. Stories can comprise photos as well as videos. You can post stories to your feed which you can view as well as your friends. These show your friends your different activities the day before. These exist for the next 24 hours within which you can replay them many times.
@@ -229,14 +70,19 @@ Start by adding photos or videos to your story. Tap on a rectangle icon with a p
 
 #### 5.Share with Your Select Friends
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![Share Snapchat Private Story](https://images.wondershare.com/filmora/article-images/share-snapchat-private-story.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once your video or photos are ready for sharing, proceed to the ‘Send’ tab. Check off the circle next to ‘My Story’, ensuring that the feed will not be public. You can then choose friends from your contact list who would receive the Snapchat private story. Alternately, you could find the story in the ‘Stories’ section on your user page. Once the story is selected, tap on a recipient to whom you wish to share the private story. After you pick the people you wish to share the story with, hit the ‘Send’ button.
 
 Once you have chosen the recipients of your Snapchat private story, they will be able to see your private as well as public stories. In the iPhone, the application shows the videos as mixed up. For Android users, the stories can be differentiated. Also, the people who were not specified for receiving the private content will have no idea of the private stories created and shared with others.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## [Creative Private Story Names and Ideas for Snapchat](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -306,6 +152,10 @@ Snapchat is an attractive platform to get your daily moments the attention they 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -318,9 +168,6 @@ Follow @Ollie Mattison
 
 A private story is one that you share with your closest friends. Snapchat is a way to restrict the people who can see the story. Snapchat provides options on **how to make a private story on Snapchat** and share the same to a select few. With such a feature you have more control over who sees the content you publish. A Snapchat private story is easy to create, the only difference is how you send the video or story across to the people you choose. You can do so on the Snapchat application on an Android as well as on an iOS device. Here we explore how such a story can be created and published or posted privately.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![Snapchat Name Ideas](https://images.wondershare.com/filmora/article-images/snapchat-name-ideas.jpg)
 
 * [Part 1: What Is a Private Story on Snapchat?](#part1)
@@ -329,17 +176,9 @@ A private story is one that you share with your closest friends. Snapchat is a w
 * [Part 4: Troubleshooting Tips: When Someone Hide Their Snapchat Stories from You](#part4)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is a Private Story on Snapchat?
 
 Stories are a term popular in Snapchat, to showcase images and videos for the last 24 hours. Stories can comprise photos as well as videos. You can post stories to your feed which you can view as well as your friends. These show your friends your different activities the day before. These exist for the next 24 hours within which you can replay them many times.
@@ -366,9 +205,6 @@ Click the ‘Open Your Profile’ section and tap on the profile icon. You will 
 
 #### 3.Select the Private Story option
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Select Private Story Snapchat](https://images.wondershare.com/filmora/article-images/select-private-story-snapchat.jpg)
 
 You will find options such as ‘Private Story’ or ‘Custom Story’ to add in the ‘Stories’ section. You might be asked to confirm whether you wish to make a private story. Simply tap on ‘Private Story’ to get started.
@@ -385,9 +221,6 @@ Once your video or photos are ready for sharing, proceed to the ‘Send’ tab. 
 
 Once you have chosen the recipients of your Snapchat private story, they will be able to see your private as well as public stories. In the iPhone, the application shows the videos as mixed up. For Android users, the stories can be differentiated. Also, the people who were not specified for receiving the private content will have no idea of the private stories created and shared with others.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## [Creative Private Story Names and Ideas for Snapchat](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Since private stories are usually daily incidents that could be mundane, funny, or tragic, here are some quirky name ideas for the same:
@@ -454,9 +287,6 @@ This feature is a useful addition and you need not hide or block a contact to si
 
 Snapchat is an attractive platform to get your daily moments the attention they deserve. You can create stories, private or with anyone else, and share them with selective people of your choice. The Snapchat private story option is great to keep your moments between your close friends or loved ones. Other features such as ‘Do Not Disturb’ allow you to silence notifications from friends or groups that you wish to check as per your convenience.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -471,9 +301,6 @@ Follow @Ollie Mattison
 
 A private story is one that you share with your closest friends. Snapchat is a way to restrict the people who can see the story. Snapchat provides options on **how to make a private story on Snapchat** and share the same to a select few. With such a feature you have more control over who sees the content you publish. A Snapchat private story is easy to create, the only difference is how you send the video or story across to the people you choose. You can do so on the Snapchat application on an Android as well as on an iOS device. Here we explore how such a story can be created and published or posted privately.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Snapchat Name Ideas](https://images.wondershare.com/filmora/article-images/snapchat-name-ideas.jpg)
 
 * [Part 1: What Is a Private Story on Snapchat?](#part1)
@@ -509,6 +336,10 @@ Click the ‘Open Your Profile’ section and tap on the profile icon. You will 
 
 ![Select Private Story Snapchat](https://images.wondershare.com/filmora/article-images/select-private-story-snapchat.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You will find options such as ‘Private Story’ or ‘Custom Story’ to add in the ‘Stories’ section. You might be asked to confirm whether you wish to make a private story. Simply tap on ‘Private Story’ to get started.
 
 #### 4.Create the Story
@@ -517,9 +348,6 @@ Start by adding photos or videos to your story. Tap on a rectangle icon with a p
 
 #### 5.Share with Your Select Friends
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Share Snapchat Private Story](https://images.wondershare.com/filmora/article-images/share-snapchat-private-story.jpg)
 
 Once your video or photos are ready for sharing, proceed to the ‘Send’ tab. Check off the circle next to ‘My Story’, ensuring that the feed will not be public. You can then choose friends from your contact list who would receive the Snapchat private story. Alternately, you could find the story in the ‘Stories’ section on your user page. Once the story is selected, tap on a recipient to whom you wish to share the private story. After you pick the people you wish to share the story with, hit the ‘Send’ button.
@@ -572,9 +400,6 @@ Since private stories are usually daily incidents that could be mundane, funny, 
 
 To get creative, choose a name that would set the narrative or theme for your story. You could then add on photos and videos to showcase the theme.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Troubleshooting Tips: When Someone Hide Their Snapchat Stories from You
 
 **How to Know if Someone Hid Their Snapchat Story from You?**
@@ -591,9 +416,147 @@ To use this feature, all you need to do is tap on the group or the person you wi
 
 This feature is a useful addition and you need not hide or block a contact to silence conversations from them. Hence, those people will also not get notified unlike when you block a contact. It allows you to see updates from them at your ease and convenience.
 
+### Conclusion
+
+Snapchat is an attractive platform to get your daily moments the attention they deserve. You can create stories, private or with anyone else, and share them with selective people of your choice. The Snapchat private story option is great to keep your moments between your close friends or loved ones. Other features such as ‘Do Not Disturb’ allow you to silence notifications from friends or groups that you wish to check as per your convenience.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+A private story is one that you share with your closest friends. Snapchat is a way to restrict the people who can see the story. Snapchat provides options on **how to make a private story on Snapchat** and share the same to a select few. With such a feature you have more control over who sees the content you publish. A Snapchat private story is easy to create, the only difference is how you send the video or story across to the people you choose. You can do so on the Snapchat application on an Android as well as on an iOS device. Here we explore how such a story can be created and published or posted privately.
+
+![Snapchat Name Ideas](https://images.wondershare.com/filmora/article-images/snapchat-name-ideas.jpg)
+
+* [Part 1: What Is a Private Story on Snapchat?](#part1)
+* [Part 2: How to Create a Private Story on Snapchat?](#part2)
+* [Part 3: Creative Private Story Names and Ideas for Snapchat](#part3)
+* [Part 4: Troubleshooting Tips: When Someone Hide Their Snapchat Stories from You](#part4)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## What Is a Private Story on Snapchat?
+
+Stories are a term popular in Snapchat, to showcase images and videos for the last 24 hours. Stories can comprise photos as well as videos. You can post stories to your feed which you can view as well as your friends. These show your friends your different activities the day before. These exist for the next 24 hours within which you can replay them many times.
+
+There is a difference between ‘My Stories’ and ‘Private Stories’. When you record and post a video or a photo on your Snapchat account publicly, it is seen by all your contacts. On the other hand, if you wish to post a private story, you need to create a custom story. After you create a custom story, you can then post the same as a private one. Here you select the ones who would view the story. You choose the contacts who would view the post before publishing it. Another aspect is that no one else can add content to the private stories you post on Snapchat.
+
+## How to Create a Private Story on Snapchat?
+
+To begin how to make a private story on Snapchat, here are the steps to follow:
+
+* [1.Log into Your Account.](#part5)
+* [2.Visit Your Profile Page](#part6)
+* [3.Select the Private Story option](#part7)
+* [4.Create the Story](#part8)
+* [5.Share with Your Select Friends](#part9)
+
+#### 1.Log into Your Account
+
+Start by logging in to your Snapchat account. In case you have been using the account often, it would be already logged in.
+
+#### 2.Visit Your Profile Page
+
+Click the ‘Open Your Profile’ section and tap on the profile icon. You will find the Snapchat private story thumbnail on the top left-hand corner of the app screen.
+
+#### 3.Select the Private Story option
+
+![Select Private Story Snapchat](https://images.wondershare.com/filmora/article-images/select-private-story-snapchat.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+You will find options such as ‘Private Story’ or ‘Custom Story’ to add in the ‘Stories’ section. You might be asked to confirm whether you wish to make a private story. Simply tap on ‘Private Story’ to get started.
+
+#### 4.Create the Story
+
+Start by adding photos or videos to your story. Tap on a rectangle icon with a plus sign on the bottom of the Snapchat screen. You will get the option to add a photo or video to your story. The feed will exist for the next 24 hours. You can even delete a snap from a story. Simply visit the ‘My Friends’ page and tap on the gear icon next to the story. Tap ‘Delete’ if you wish to remove a video or image. You can also edit or add tags or stickers to a video or story before sharing.
+
+#### 5.Share with Your Select Friends
+
+![Share Snapchat Private Story](https://images.wondershare.com/filmora/article-images/share-snapchat-private-story.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Once your video or photos are ready for sharing, proceed to the ‘Send’ tab. Check off the circle next to ‘My Story’, ensuring that the feed will not be public. You can then choose friends from your contact list who would receive the Snapchat private story. Alternately, you could find the story in the ‘Stories’ section on your user page. Once the story is selected, tap on a recipient to whom you wish to share the private story. After you pick the people you wish to share the story with, hit the ‘Send’ button.
+
+Once you have chosen the recipients of your Snapchat private story, they will be able to see your private as well as public stories. In the iPhone, the application shows the videos as mixed up. For Android users, the stories can be differentiated. Also, the people who were not specified for receiving the private content will have no idea of the private stories created and shared with others.
+
+## [Creative Private Story Names and Ideas for Snapchat](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Since private stories are usually daily incidents that could be mundane, funny, or tragic, here are some quirky name ideas for the same:
+
+1.Work it out
+
+2.Got up on the wrong side of the bed today
+
+3.Cake anyone
+
+4.Waking up to coffee
+
+5.Monday mayhem
+
+6.Lazy
+
+7.WFH
+
+8.Just another day at work
+
+9.Mememe
+
+10.Blissful fun
+
+11.A night out with the ladies
+
+12.Boots for walking
+
+13.Christmas is here
+
+14.New food mantra
+
+15.Cheat day today
+
+16.Diet food anyone
+
+17.Soulful vibes
+
+18.Social distancing
+
+19.Snooze the alarm
+
+20.A hug in a mug
+
+To get creative, choose a name that would set the narrative or theme for your story. You could then add on photos and videos to showcase the theme.
+
+## Troubleshooting Tips: When Someone Hide Their Snapchat Stories from You
+
+**How to Know if Someone Hid Their Snapchat Story from You?**
+
+There is a way to find out whether someone is hiding their Snapchat stories from you. You can use someone else’s account to check if their stories are showing on their feed. You could also send a private snap to that person. If he or she answers the same quickly and yet, you do not get to see their stories that would mean that you are hidden contact in their list.
+
+You could also ask a common friend if they have even received stories and updates from that person. If the person’s stories are reaching others but not you, that means that they have hidden their stories from you.
+
+**Can You Hide Someone on Snapchat Without Them Knowing?**
+
+If you wish to hide someone but in a way that they do not find out, try the new muting function. This allows you to mute certain friends without them realizing the same. The feature is called ‘Do Not Disturb’ and it allows you to mute conversations that are one on one or come from groups. The feature is a new addition and is a useful one. You need not hide or block any contact in this case but simply silence notifications of their updates.
+
+To use this feature, all you need to do is tap on the group or the person you wish to silence. The popup menu would include ‘Settings’ and here you can select the option ‘Do Not Disturb’. You will not receive notifications from such conversations. However, you will still be able to access, check messages from such contacts as well as share your stories as well.
+
+This feature is a useful addition and you need not hide or block a contact to silence conversations from them. Hence, those people will also not get notified unlike when you block a contact. It allows you to see updates from them at your ease and convenience.
+
 ### Conclusion
 
 Snapchat is an attractive platform to get your daily moments the attention they deserve. You can create stories, private or with anyone else, and share them with selective people of your choice. The Snapchat private story option is great to keep your moments between your close friends or loved ones. Other features such as ‘Do Not Disturb’ allow you to silence notifications from friends or groups that you wish to check as per your convenience.
@@ -618,9 +581,6 @@ Follow @Ollie Mattison
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Proper Techniques for Exporting Photos From Phone to Snapchat
 
 Many people haven't backed up their camera roll to Snapchat due to the default settings. If you want to save each photo or video from your device on the Snapchat cloud, backing up the camera to the Memories is necessary. By doing so, you cannot lose important photos or videos from your phone.
@@ -628,8 +588,9 @@ Many people haven't backed up their camera roll to Snapchat due to the default s
 If you change the default settings of the Memories created from the camera roll, Snapchat will automatically create a backup of your Memories. In this regard, this article will guide you on **how to back up the camera roll to Snapchat** in the easiest way.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: Backing up automatically - Creating Snapchat Stories from your Camera Roll
 
 If you don't want to alter the settings of your camera roll, this part will offer you an easy method. Through this method, you can create Snapchat stories from the camera roll directly. By doing so, you can instantly save the camera roll photos to your Snapchat without backing up. To make a Snapchat story from your camera roll, read the following instructions:
@@ -640,9 +601,6 @@ Step1 Open your Snapchat and swipe up from the bottom. Head to the Camera Roll s
 
 Step2 After selecting a particular photo or video, hit the "Arrow" icon. Afterward, tap on the "My Story" option to create a story. For confirmation, press the "Arrow" icon again. This will create a Snapchat story instantly from your Camera Roll.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![tap on arrow icon](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-2.jpg)
 
 ## Part 2: How to Backup your Camera Roll to Snapchat without Creating Stories
@@ -655,14 +613,8 @@ Step1 After opening your Snapchat app, open your Memories by swiping up. Proceed
 
 Step2 Once you have selected the picture, choose the "Create Story" option. Afterward, tap on the "Save Story" option, which will save the camera roll picture in the Memories section.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![press save story button](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to Check Your Backup Progress
 
 To ensure a complete backup of your Memories on Snapchat, a stable Wi-Fi connection is mandatory. That's why make sure to connect your phone with a stable and strong internet connection. Moreover, if you have chosen multiple photos or videos from the Camera Roll, you can save them as a story on Snapchat. However, if you want to save individual images, you will need to make their backup separately in Memories. To check your backup progress on Snapchat, navigate to the following steps:
@@ -673,14 +625,12 @@ Step1 Once you have opened your Snapchat, tap on your Bitmoji icon. From there, 
 
 Step2 Scroll down a little to find the option "Memories." Afterward, you can see the option "Backup Progress." If you can see the word "Complete," it means that your Memories are backed up completely. If not, connect your phone to a stable Wi-Fi connection.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![check the backup progress](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How to Turn On the Smart Backup
 
 A Smart Backup is an advanced option on Snapchat that lets you back up memories automatically. If you enable this feature, Snapchat will automatically create a backup through a stable internet connection. This feature allows you to easily access your Memories even if you reinstall Snapchat on another device. Moreover, you can save your phone's storage by saving photos or videos in Memories. To activate the Smart Backup feature, read the below instructions:
@@ -703,9 +653,6 @@ Open your Snapchat and head to its "Memories." From the "Snaps" section, select 
 
 To initiate, tap on your "Bitmoji" icon on Snapchat. Head to "Settings" and choose "Memories" from the displayed options. Afterward, tap on the "Save Button" option under the heading "Save Destinations." In the "Save Button" menu, you can tap "Memories and Camera Roll" to backup pictures in both sections.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. How to Get My Story Snaps to Auto-Save to Memories?
 
 The process to auto-save the stories to Memories is quite simple. For this, open the "Settings" of Snapchat and head to the "Memories" option. Under the heading called "Save Destination," tap on "Auto-Save My Story Snaps." Once done, enable the option "Auto-Save to Memories." Thus, your Snapchat stories will be automatically saved to your Memories.
@@ -733,7 +680,21 @@ Snapchat allows you to save the captured pictures and videos in their Memories. 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-boost-social-influence-with-these-15-snap-ideas/"><u>[New] In 2024, Boost Social Influence with These 15 Snap Ideas</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-clear-and-steady-essential-youtube-camera-tech-for-2024/"><u>[Updated] Clear and Steady Essential YouTube Camera Tech for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-connect-online-screen-sharing-secrets-for-live-streaming/"><u>[Updated] In 2024, Connect Online Screen-Sharing Secrets for Live Streaming</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-quick-photo-upload-to-your-social-feeds-tips-and-tricks/"><u>[Updated] In 2024, Quick Photo Upload to Your Social Feeds – Tips & Tricks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-into-photo-magic-innovative-edits-on-snapchat/"><u>[Updated] Step Into Photo Magic Innovative Edits on Snapchat</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-photopea-blueprint-for-flawless-image-backdrop-for-2024/"><u>[Updated] The Photopea Blueprint for Flawless Image Backdrop for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-understanding-your-absence-on-snapchat/"><u>[Updated] Understanding Your Absence on Snapchat</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-tale-of-two-approaches-polite-vs-aggressive-asking-for-2024/"><u>A Tale of Two Approaches Polite vs Aggressive Asking for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hack-deterrent-the-rise-in-q2-oculus-sales/"><u>Facebook's Hack Deterrent: The Rise in Q2 Oculus Sales</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/maximizing-memory-storing-snapshots-in-photo-albums-from-snapchat-for-2024/"><u>Maximizing Memory Storing Snapshots in Photo Albums From Snapchat for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-methods-for-learning-lithuanian-virtually/"><u>Optimal Methods for Learning Lithuanian Virtually</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/revolutionize-your-design-work-with-free-images-from-these-leading-sites/"><u>Revolutionize Your Design Work with Free Images From These Leading Sites</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-art-of-music-infused-snapchatting-for-2024/"><u>The Art of Music-Infused Snapchatting for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/traversing-the-terrain-of-facebooks-video-hub/"><u>Traversing the Terrain of Facebook’s Video Hub</u></a></li>
+</ul></div>
 
