@@ -1,7 +1,7 @@
 ---
 title: "Masterclass Review: The Reliability and Ease of Setting Up an AcuRite Pro 01036M Weather Station"
-date: 2024-11-24T17:26:24.467Z
-updated: 2024-11-25T17:31:26.350Z
+date: 2024-12-01T20:19:19.070Z
+updated: 2024-12-04T20:11:43.007Z
 categories:
   - BestProducts
 description: "This Article Describes Masterclass Review: The Reliability and Ease of Setting Up an AcuRite Pro 01036M Weather Station"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/a770835b076eb6b9f15ef9eaa24a0d7865dfb16a5
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -40,6 +36,10 @@ Lifewire / Gannon Burgett
 [View On Amazon $91](https://www.amazon.com/dp/B00YP823NA?tag=lifewire-onsite-prod-20&ascsubtag=4589398%7Cn970af9c77c9d48e5afeadf350862a65723%7CB00YP823NA)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
@@ -67,11 +67,19 @@ Lifewire / Gannon Burgett
 
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
 
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -88,10 +96,6 @@ Lifewire / Gannon Burgett
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
 
  The point of a charger is to have extra battery power on hand when needed so you don't have to carry around unnecessary cables when traveling. Unfortunately, the MaxOak battery pack doesn't use any kind of USB or standardized port. Rather than charging it with a[USB Type-C](https://www.lifewire.com/usb-c-4149490) or even a micro-USB port, the MaxOak battery pack relies on its own proprietary power supply that's nearly as large as most laptop chargers. Sure, the 50000mAh onboard is likely enough that you could leave both the battery pack charger and your laptop charger behind for most events, but eventually you'll run out of juice and rather than reaching for a cable you would probably already have in your bag, you're stuck bringing along a proprietary charger.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
@@ -111,16 +115,12 @@ Lifewire / Gannon Burgett
 
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: One in the same**
@@ -139,15 +139,15 @@ Lifewire / Gannon Burgett
 
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,24 +179,19 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-comprerant-and-reviewed-the-ultimate-list-of-ios-video-edits/"><u>[New] Compreran't & Reviewed The Ultimate List of iOS Video Edits</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-discovering-snapchats-video-capabilities-with-ease-for-2024/"><u>[New] Discovering Snapchat's Video Capabilities with Ease for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-harnessing-microsoft-teams-power-with-simple-snap-camera-use/"><u>[New] Harnessing Microsoft Teams' Power with Simple Snap Camera Use</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-how-to-make-and-edit-multi-snapchat-videos-easily/"><u>[New] How to Make and Edit Multi Snapchat Videos Easily</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-120plus-original-title-concepts-for-unique-and-memorable-snapchat-stories/"><u>[New] In 2024, 120+ Original Title Concepts for Unique and Memorable Snapchat Stories</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-enhancing-video-calls-incorporating-snap-camera-on-teams/"><u>[New] In 2024, Enhancing Video Calls Incorporating Snap Camera on Teams</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-gopro-vs-yi-4k-the-ultimate-battle-of-action-cam-innovation-in-23-for-2024/"><u>[Updated] GoPro Vs. Yi 4K The Ultimate Battle of Action Cam Innovation in '23 for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-closing-your-vlog-right-top-6-free-youtube-outro-tools/"><u>[Updated] In 2024, Closing Your Vlog Right Top 6 Free YouTube Outro Tools</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-androids-best-practice-for-saving-gameplay-videos/"><u>2024 Approved Android's Best Practice for Saving Gameplay Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-essential-blueprint-a-simple-guide-to-facebook-ad-success/"><u>2024 Approved Essential Blueprint A Simple Guide to Facebook Ad Success</u></a></li>
-<li><a href="https://media-tips.techidaily.com/best-free-app-seamlessly-cast-your-windows-media-on-apple-tv-using-airplay-technology/"><u>Best Free App: Seamlessly Cast Your Windows Media on Apple TV Using AirPlay Technology</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-video-performance-with-key-seo-tools/"><u>Boost Video Performance with Key SEO Tools</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-depth-review-unveiling-the-features-of-the-samsung-galaxy-s-ii/"><u>In-Depth Review: Unveiling the Features of the Samsung Galaxy S II</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/infuse-sound-with-microsoft-powerpoint-decks-for-2024/"><u>Infuse Sound with Microsoft PowerPoint Decks for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/quick-steps-installing-snapchat-on-macos-for-2024/"><u>Quick Steps Installing Snapchat on macOS for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/the-great-debate-who-outshines-the-other-tiktok-vs-snapchat/"><u>The Great Debate Who Outshines the Other? - TikTok vs Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/unleashing-creativity-quick-lens-building-on-snapchat-for-2024/"><u>Unleashing Creativity Quick Lens Building on Snapchat for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unstuck-on-cod-vanguard-voice-chat-not-responding-try-these-fixes-first/"><u>Unstuck on Cod: Vanguard Voice Chat Not Responding? Try These Fixes First</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/unveiling-concealed-intentions-the-art-of-snapchat-emojis-for-2024/"><u>Unveiling Concealed Intentions The Art of Snapchat Emojis for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-essential-tips-for-efficient-camera-roll-upload-to-snapchat/"><u>[New] In 2024, Essential Tips for Efficient Camera Roll Upload to Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-artisans-guide-to-crafting-cartoons-on-snaps/"><u>[Updated] In 2024, The Artisan's Guide to Crafting Cartoons on Snaps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-expert-insights-on-ps3-gameplay-documentation/"><u>2024 Approved Expert Insights on PS3 Gameplay Documentation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-generating-income-with-every-swipe-up/"><u>2024 Approved Generating Income with Every Swipe Up</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-tecno-camon-30-pro-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Tecno Camon 30 Pro 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/essential-mobile-tips-for-saving-your-snapchat-videos-for-2024/"><u>Essential Mobile Tips for Saving Your Snapchat Videos for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/exploring-differences-in-vimeo-and-youtube-services/"><u>Exploring Differences in Vimeo & YouTube Services</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/galaxy-evolution-benchmarking-s24-ultra-against-its-predecessor-the-s23-ultra/"><u>Galaxy Evolution: Benchmarking S24 Ultra Against Its Predecessor, the S23 Ultra</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-behind-the-scenes-how-to-flip-your-snaps/"><u>In 2024, Behind-the-Scenes How to Flip Your Snaps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-unleash-potential-with-strategic-use-of-snapkit-features/"><u>In 2024, Unleash Potential with Strategic Use of SnapKit Features</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/1722995270622-pubg-no-volume-heres-how-you-can-get-game-audio-back/"><u>PUBG No Volume? Here's How You Can Get Game Audio Back!</u></a></li>
+<li><a href="https://network-issues.techidaily.com/rtx-3080-troubleshooting-a-gamers-lifesaver-guide/"><u>RTX 3080 Troubleshooting: A Gamer's Lifesaver Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/uncover-the-best-free-ultimate-3d-videos-playing-solutions/"><u>Uncover the Best Free, Ultimate 3D Videos Playing Solutions</u></a></li>
 </ul></div>
 

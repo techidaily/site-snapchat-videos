@@ -1,7 +1,7 @@
 ---
 title: "Spotting Gone From Your Friend List for 2024"
-date: 2024-11-13T20:47:42.836Z
-updated: 2024-11-16T02:14:10.830Z
+date: 2024-12-01T18:47:14.117Z
+updated: 2024-12-04T22:10:09.131Z
 tags:
   - ai video
   - ai snapchat
@@ -69,6 +69,10 @@ It's possible they deactivated their account to ensure you can use a different a
 
 Snapchat hides the fact that someone has banned you from view. I really hope this information was useful to you in some manner. Approaching the individual who has obstructed you should be done with caution. Keep in mind why you were first barred, and attempt to avoid making the same error repeatedly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7. Look for the person's username and full name
 
 ![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
@@ -139,13 +143,6 @@ Searching for someone active on Instagram may need you to read their recent stor
 
 Snapchat scores are only visible to friends. Otherwise, your Snapchat account has been suspended or terminated.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6. Use a separate account to do a name search
 
 It's possible they deactivated their account to ensure you can use a different account to search for their username if you don't find them there. If they do appear, you may be sure they blocked you after removing you.
@@ -204,16 +201,13 @@ Being blocked on Snapchat, on the other hand, is a very other matter. This indic
 
 It's possible that the other user deleted their account or was barred if your recent conversations don't appear despite being preserved.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.Send them a message if you can
 
 You can snap someone you've spoken to in the past if you've previously interacted with them. If you notice a pending or grey indicator after sending it, they may have removed you from the contact list. 'Failed to send a message - Tap to try again' may indicate that you have been blocked. Snapchat, on the other hand, will display all of your messages as 'delivered,' even if you have been banned.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3.Check your list of Friends to see whether they're there
 
@@ -239,19 +233,6 @@ Snapchat hides the fact that someone has banned you from view. I really hope thi
 
 ![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When you search for someone on Snapchat and they've banned you, you won't be able to find them. Searching for them should bring them up even if they've unfriended you on Facebook.
 
 It's critical to know the difference between Snapchat's blocking and deleting features. If someone has banned your account, you won't be able to locate it anywhere and you won't be able to communicate with it from the blocked account either.
@@ -286,6 +267,10 @@ However, if you discover that how to know if someone blocked you on Snapchat, co
 
 A deleted account differs from a banned account in that it is no longer accessible.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Blocked vs. removed: What's the difference?
 
 Snapchat's blocking system differs from those other social media sites. The individual who is blocked won't know if they've been blocked since they won't know how to find out. Even if they are no longer friends, the guy who blocked them will seem to be. They'll remain in your chat list and in your friend's list, but they won't be able to see any messages you send. You won't even be able to access their blogs or other online information.
@@ -300,6 +285,10 @@ Being blocked on Snapchat, on the other hand, is a very other matter. This indic
 
 It's possible that the other user deleted their account or was barred if your recent conversations don't appear despite being preserved.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2.Send them a message if you can
 
 You can snap someone you've spoken to in the past if you've previously interacted with them. If you notice a pending or grey indicator after sending it, they may have removed you from the contact list. 'Failed to send a message - Tap to try again' may indicate that you have been blocked. Snapchat, on the other hand, will display all of your messages as 'delivered,' even if you have been banned.
@@ -308,16 +297,13 @@ You can snap someone you've spoken to in the past if you've previously interacte
 
 To see this list, just go to your profile & click on My Friends. If they don't show up, they may have blocked you. They might have canceled their account or disabled you from their Friends list.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4.Verify whether or not you can view their tales on the internet
 
 Searching for someone active on Instagram may need you to read their recent stories first. If you're unable to, you've probably been blocked.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5. Verify whether you can see their Snapchat rating
 
@@ -379,6 +365,10 @@ But have you ever wondered and thought about how people get those amazing images
 
 ![snapchat app](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Therefore, without any further delay, let's dive in!
 
 ## Part 1\. What are Snapchat's Image Editing Tools?
@@ -412,13 +402,6 @@ Here's a quick rundown of how to add pictures from your camera roll to Snapchat:
 Step1 Open the **Snapchat app** on your device and tap the **"Two Overlayed Pictures"** icon beside the **Camera** button.
 
 ![accessing camera roll](https://images.wondershare.com/filmora/article-images/2022/11/accessing-camera-roll.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 This will take you to **Memories.** Click the **Camera Roll** tab, scroll the pictures to add the one you want, and tap it.
 
@@ -464,6 +447,10 @@ Step3 Next, use the **color meter** to change the font color. Tap the **white ic
 
 ![snapchat text tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-text-tool.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Draw on your Images
 
 Snapchat comes with a drawing tool that you can use to add a personal touch to your photos or create fun and unique designs in the following way:
@@ -475,13 +462,6 @@ Step2 Tap the **Color wheel** to change the color palette and then choose the co
 Step3 Finally, use your finger to draw on the picture. You can use the Undo icon to take back any action that goes wrong.
 
 ![snapchat draw tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-draw-tool.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How To Add A Theme
 
@@ -519,6 +499,10 @@ Step3 Finally, tap the **blue Check** icon to save your cropped image.
 
 If you want to learn how to zoom your videos or images on Snapchat, [click here to find out!](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Set a Time Limit
 
 You can set a time limit on your photo to limit their visibility while editing it on Snapchat. To do so, follow the below instructions step-by-step:
@@ -531,13 +515,6 @@ Step3 Finally, tap the **Clock icon** at the top right side of the screen to app
 
 ![setting time limit on picture](https://images.wondershare.com/filmora/article-images/2022/11/setting-time-limit-on-picture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. How to Save Snaps for Later Sharing
 
 When you take a Snap, you can directly send it to your friends. But sometimes, you want to keep a Snap around for a while before sharing it. Maybe you want to edit it first, or you want to wait for the perfect moment to share it.
@@ -548,6 +525,10 @@ A Quick Guide:
 
 1. [Saving the Original Snapchat Pictures](#part3-1)
 2. [Saving the Edited Camera Roll's Pictures](#part3-2)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Saving the Original Snapchat Pictures
 
@@ -594,10 +575,7 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
 For Android, download the AZ video recorder - an app that does not require any root access and lets you record your screen with a high resolution and frame rate. To learn more, [click here!](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -621,24 +599,19 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2023s-leading-browsers-recording-software-guide-for-2024/"><u>[New] 2023'S Leading Browsers Recording Software Guide for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-unlocking-potential-in-snaps-maximizing-your-marketing-impact/"><u>[New] 2024 Approved Unlocking Potential in Snaps Maximizing Your Marketing Impact</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-zero-cost-mp3-the-skype-recording-method/"><u>[New] 2024 Approved Zero-Cost MP3 The Skype Recording Method</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-navigating-the-pinning-landscape-in-snapchat/"><u>[New] In 2024, Navigating the Pinning Landscape in Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-nostalgic-snapshots-from-your-camera-roll-on-snapchat/"><u>[New] Nostalgic Snapshots From Your Camera Roll on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-optimal-strategies-for-mobile-snapchat-recordings/"><u>[New] Optimal Strategies for Mobile Snapchat Recordings</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-11-must-know-tricks-for-effective-fb-video-seo-and-performance/"><u>[Updated] 2024 Approved 11 Must-Know Tricks for Effective FB Video SEO and Performance</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-effortless-guide-to-exporting-and-archiving-snapshot-files/"><u>[Updated] Effortless Guide to Exporting and Archiving SnapShot Files</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-expert-tips-on-seamless-multisnapping-videos-in-snapchat/"><u>[Updated] In 2024, Expert Tips on Seamless Multisnapping Videos in Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-quick-reinstatement-protocols-for-snaps/"><u>[Updated] Quick Reinstatement Protocols for Snaps</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-sony-x1000d-vivid-full-action-cam-test/"><u>[Updated] Sony X1000D Vivid - Full Action Cam Test</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-2023s-must-watch-alternatives-to-top-films/"><u>2024 Approved 2023'S Must-Watch Alternatives to Top Films</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-imo-app-evaluation-pros-and-cons/"><u>Comprehensive Imo App Evaluation: Pros and Cons</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/cutting-edge-methods-backing-up-iphone-photos-to-snapchat-for-2024/"><u>Cutting-Edge Methods Backing Up iPhone Photos to Snapchat for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-on-apple-iphone-15-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password On Apple iPhone 15</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-a-step-by-step-guide-to-your-first-twitter-profile/"><u>In 2024, A Step-by-Step Guide to Your First Twitter Profile</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-step-by-step-guide-to-masterful-snapchat-editing/"><u>In 2024, Step-by-Step Guide to Masterful Snapchat Editing</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/stand-strong-with-the-ergohead-desk-pad-in-depth-analysis-of-longevity-and-comfort/"><u>Stand Strong with the Ergohead Desk Pad: In-Depth Analysis of Longevity and Comfort</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/troubleshooting-and-resolving-code-41-hardware-conflicts-on-your-pc/"><u>Troubleshooting and Resolving Code 41 Hardware Conflicts on Your PC</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-save-your-android-and-mac-snapchat-footage-effectively/"><u>[New] In 2024, Save Your Android & Mac Snapchat Footage Effectively</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-quick-and-easy-mac-screen-captures-utilizing-keyboard-shortcuts-for-2024/"><u>[New] Quick and Easy Mac Screen Captures Utilizing Keyboard Shortcuts for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-speak-and-stun-on-snapchat-voice-change-made-simple-for-2024/"><u>[New] Speak and Stun on Snapchat Voice Change Made Simple for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snapstrategy-101-crafting-effective-ads-for-biz/"><u>[Updated] 2024 Approved SnapStrategy 101 Crafting Effective Ads for Biz</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-srt-production-via-xml-ssa-and-ttml-conversions/"><u>[Updated] 2024 Approved SRT Production via XML, SSA & TTML Conversions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-a-step-into-anti-time-original-techniques-to-rewind-yt-videos/"><u>[Updated] In 2024, A Step Into Anti-Time Original Techniques to Rewind YT Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-harnessing-imovies-capabilities-for-youtube-video-perfection/"><u>[Updated] In 2024, Harnessing iMovie's Capabilities for YouTube Video Perfection</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchat-strategies-optimizing-for-business-growth/"><u>[Updated] In 2024, Snapchat Strategies Optimizing for Business Growth</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-streamline-your-skype-experience-with-obs-recordings/"><u>[Updated] Streamline Your Skype Experience with OBS Recordings</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-video-upgrade-pathway-sdr-to-hdri-transformation-techniques/"><u>[Updated] The Ultimate Video Upgrade Pathway SDR to HDRI Transformation Techniques</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-snapshot-experience-mastering-snapchat-filters/"><u>2024 Approved The Ultimate Snapshot Experience Mastering Snapchat Filters</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/le-varie-forme-di-sincronizzazione-unanalisi-comparata-per-una-migliore-ottimizzazione-seo/"><u>Le Varie Forme Di Sincronizzazione: Un'Analisi Comparata per Una Migliore Ottimizzazione SEO</u></a></li>
+<li><a href="https://games-able.techidaily.com/transform-your-brain-power-with-nyts-latest-intellectual-puzzle-strands/"><u>Transform Your Brain Power with NYT’s Latest Intellectual Puzzle - 'Strands'</u></a></li>
 </ul></div>
 

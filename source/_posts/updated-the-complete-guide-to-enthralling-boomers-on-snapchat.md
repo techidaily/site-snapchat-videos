@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Complete Guide to Enthralling Boomers on Snapchat"
-date: 2024-11-22T17:23:44.410Z
-updated: 2024-11-25T16:12:59.716Z
+date: 2024-12-01T21:55:18.152Z
+updated: 2024-12-05T06:35:35.354Z
 tags:
   - ai video
   - ai snapchat
@@ -29,10 +29,6 @@ Step1 On your iOS device, navigate to the App Store. You then need to click on y
 
 ![tap on the profile icon](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 After tapping on the Profile icon, you can see all the pending updates of your installed apps. If a pending update of Snapchat is available, tap on the "Update" button displayed next to the Snapchat app.
 
 ![start updating snapchat](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-2.jpg)
@@ -45,15 +41,15 @@ Step3 Once you are done with updating your Snapchat to the latest version, you c
 
 The Bounce feature is only available on iOS devices. If you want to make a bounce on your Android smartphone, you can take help from the following easy methods. These methods can work on iOS and Android phones and will help you with **how to do a boomerang on Snapchat**.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 1: Regular Loop
 
 On Snapchat, a Regular Loop feature allows you to play your snap without back-and-forth effect. By applying this feature, you can make your video enjoyable without the Bounce option. To use this feature, capture a video from the recording button and then press the "Infinity" icon twice. By tapping on the Infinity icon twice, you can activate the feature "Loop."
 
 ![use snapchat regular loop](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 2: Limitless Snap
 
@@ -74,12 +70,16 @@ Step2 Now, you can record the video by pressing and holding the Record button. O
 ![choose the save option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 The boomerang video will be saved on your phone's gallery directly. To access the saved video from Snapchat, you need to open your Snapchat memories and head to the Camera Roll tab. Here, you can find the saved boomerang video created through Instagram.
 
 ![access the camera roll tab](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Part 3: Further Reading: How To Turn Video Into Boomerang With a Useful Tool
 
@@ -107,10 +107,6 @@ Step4 Once you are done with your Snapchat boomerang video, set the resolution o
 
 ![export filmorago boomerang](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Do you love making boomerang videos and want to know **how to do a boomerang on Snapchat**? Snapchat has introduced its Bounce feature, through which you can create boomerang videos and share them with your friends for fun. To achieve the best results in creating a boomerang video, you can try the smartphone tool known as Filmora. This mobile platform also comprises advanced features that can increase the quality of your boomerang video.
@@ -134,10 +130,6 @@ Step3 You can select the unnecessary part of the video and simply tap on the "De
 Step4 Once you are done with your Snapchat boomerang video, set the resolution of the output video with the provided option on the top and click on the "Export" button.
 
 ![export filmorago boomerang](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -165,10 +157,6 @@ With the information available in this article, you will be able to create a str
 
 ![snapchat app](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Snapchat Overview
 
 Firstly, let's have an overview of Snapchat before we see how to draw your blueprint in Part 3 and Part 4.
@@ -178,6 +166,10 @@ Snapchat - founded by Evan Spiegel, Bobby Murphy, and Reggie Brown - is a unique
 As of May 2022, Snapchat has [347 million daily active users.](https://www.statista.com/statistics/545967/snapchat-app-dau/#:~:text=How%20many%20daily%20active%20users,increase%20of%20over%2018%20percent.) That's impressive growth from its humble beginnings back in 2011\. With [monthly active users of 557](https://www.statista.com/statistics/272014/global-social-networks-ranked-by-number-of-users/), Snapchat is ranked as the 12th most popular social media platform.
 
 Not only that, the number of [Snapchat daily video views is 18 billion,](https://www.omnicoreagency.com/snapchat-statistics/) making it the best platform to showcase your services/products and generate more income. However, all this is only possible with the right **Snapchat marketing strategy.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Why Should Business Market On Snapchat
 
@@ -226,7 +218,7 @@ Type all the relevant information, such as First Name, Last Name, username, birt
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** Select a username that reflects your brand.
@@ -234,6 +226,10 @@ Type all the relevant information, such as First Name, Last Name, username, birt
 Step2 Now, set up your business account by heading to [Snapchat Business Manager](https://accounts.snapchat.com/accounts/login?client%5Fid=ads-api&referrer=https%3A%2F%2Fads.snapchat.com%2Finstant-setup) and use your regular account details to log in.
 
 ![snapchat business account](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-business-account.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Set your legal business name, your name, your country, and the currency you would like to use. Click **"Sign Up/Get Started,"** and your account business account will be created.
 
@@ -278,10 +274,6 @@ Here are a few tips and approaches to help you create a Snapchat story that will
 * **Use high-quality visuals:** Since Snapchat is all about visuals, use high-quality images and videos in your story.
 * **Be creative**: Use Snapchat's unique features, such as filters and augmented reality, to create a story that is truly one of a kind.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How To Advertise With Snapchat
 
 Snapchat Ads are a form of advertisement that allows businesses to reach out to Snapchat users with creative and interactive content. These ads can take the form of filters, lenses, or Geofilters and can be targeted to specific users based on their interests and location.
@@ -309,7 +301,7 @@ Snapchat Discover is a feature that helps brands to publish stories on the Snapc
 You can get almost 2 times more traffic on your website by having a channel on Snapchat Discover and sharing engaging content with clickable links.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Track and Measure your Marketing Results
@@ -357,6 +349,10 @@ Step2 Now, set up your business account by heading to [Snapchat Business Manager
 
 Step3 Set your legal business name, your name, your country, and the currency you would like to use. Click **"Sign Up/Get Started,"** and your account business account will be created.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Create Your Snapcode
 
 Snapcode is a badge similar to QR codes that users can scan via their phone to find you quickly. You can use these codes to link your website, add a logo, or display them in your ads to create brand recognition.
@@ -370,10 +366,6 @@ Step2 Now, tap the **Settings** icons, find the **"Snapcodes"** option and tap i
 ![creating snapcodes](https://images.wondershare.com/filmora/article-images/2022/11/creating-snapcodes.jpg)
 
 Once your Snapcode is created, you can add an image or share it on other social media platforms to get more followers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4\. Strategies for Your Snapchat Business
 
@@ -414,6 +406,10 @@ Geofilters are location-specific AR filters that you can create on-demand for yo
 
 ![on demand geofilters](https://images.wondershare.com/filmora/article-images/2022/11/on-demand-geofilters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Sponsored Lenses
 
 Sponsored lenses are AR filters businesses produce to interact with their users on Snapchat. Users can use these lenses to make inspiring snaps, send them to friends or have fun playing games using the gamified lenses.
@@ -450,6 +446,10 @@ Here are a few tips to expand your Snapchat business:
 * **Upload content regularly:** Uploading content regularly keeps your followers engaged and coming back for more.
 * **Interact with other users:** Respond to comments and messages, and follow other businesses and influencers in your industry to build a community around your brand and expand your reach.
 * **Learn about Snapchat's new functions timely:** The platform is constantly updated, and new features are always added. So by staying up-to-date on the latest Snapchat news, you'll be able to take advantage of new features as soon as they're available.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 6\. The Great Helper for Your Snapchat Business
 
@@ -482,24 +482,18 @@ When it comes to Snapchat, the opportunities for marketing are endless. However,
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-dailymotion-elites-in-snapchat-world/"><u>[New] 2024 Approved Dailymotion Elites in Snapchat World</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snap-income-trends-in-making-money-on-social-media/"><u>[New] 2024 Approved Snap Income Trends in Making Money on Social Media</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-soundtrack-of-successful-snapchat-stories/"><u>[New] 2024 Approved The Soundtrack of Successful Snapchat Stories</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-easy-transition-integrating-snapchat-with-macos/"><u>2024 Approved Easy Transition Integrating Snapchat with macOS</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-googleplus-virtuosos-snapchat-highlights/"><u>2024 Approved Google+ Virtuosos' Snapchat Highlights</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-navigating-through-the-essentials-of-snap-camera-on-ms-teams/"><u>2024 Approved Navigating Through the Essentials of Snap Camera on MS Teams</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-unveiling-the-secrets-to-slow-motion-screenshots-in-snapchat/"><u>2024 Approved Unveiling the Secrets to Slow-Motion Screenshots in Snapchat</u></a></li>
-<li><a href="https://fox-access.techidaily.com/action-camera-buyers-manual-skisnow-gear-insights-for-2024/"><u>Action Camera Buyer's Manual Ski/Snow Gear Insights for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixes-implemented-for-pubg-building-rendering-issues-enjoy-uninterrupted-gaming/"><u>Fixes Implemented For PUBG Building Rendering Issues - Enjoy Uninterrupted Gaming</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/flacmp3/"><u>FLAC到MP3無損音質傑出轉換教程：快速易行指南！</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/how-to-make-career-in-graphic-designing-for-2024/"><u>How to Make Career in Graphic Designing for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-use-special-features-virtual-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Lava Yuva 2? | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-how-to-install-and-use-snapchat-on-your-mac/"><u>In 2024, How to Install and Use Snapchat on Your Mac?</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-different-messaging-services-not-fbs/"><u>Leveraging Different Messaging Services, Not FB's</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/masterful-backup-techniques-for-iphone-to-snapchat-content-for-2024/"><u>Masterful Backup Techniques for iPhone to Snapchat Content for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-the-social-sphere-tips-for-using-facebook-twitter-instagram-and-youtube-effectively/"><u>Mastering the Social Sphere: Tips for Using Facebook, Twitter, Instagram, and YouTube Effectively</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/smart-shopping-for-data-stores-the-lowdown-on-price-for-2024/"><u>Smart Shopping for Data Stores The Lowdown on Price for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-on-apple-iphone-6s-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock on Apple iPhone 6s</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-14-top-rated-free-video-editing-tools-without-watermarks/"><u>Updated In 2024, 14 Top-Rated Free Video Editing Tools Without Watermarks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-30-must-try-mp4-gadgets-unveiled/"><u>[New] 30 Must-Try MP4 Gadgets Unveiled</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-efficient-snap-catch-strategies/"><u>[New] Efficient Snap Catch Strategies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-stepwise-strategy-editing-multi-snap-chats-with-ease/"><u>[New] In 2024, Stepwise Strategy Editing Multi-Snap Chats with Ease</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-vimeo-vips-engaging-on-snapchat/"><u>[Updated] 2024 Approved Vimeo VIPs Engaging on Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-social-media-showdown-twitters-top-tiktok-trends-for-2024/"><u>[Updated] Social Media Showdown Twitters' Top TikTok Trends for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/capture-and-save-your-snapchat-screen-seamlessly-for-2024/"><u>Capture and Save Your Snapchat Screen Seamlessly for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/cat5-versus-cat6-cables-advantages-limitations-and-when-to-use-each/"><u>Cat5 Versus Cat6 Cables: Advantages, Limitations, and When to Use Each</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/freedom-in-focus-top-20-prisoner-wit-punchlines-on-social-media/"><u>Freedom in Focus Top 20 Prisoner-Wit Punchlines on Social Media</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-endorsed-ae-text-tools/"><u>In 2024, Expert-Endorsed AE Text Tools</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209894188--lord-let-me-win/"><u>Lord, Let Me Win | Free Book</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/stream-and-display-your-favorite-movies-on-tv-effortless-dvd-conversion-techniques/"><u>Stream & Display Your Favorite Movies on TV - Effortless DVD Conversion Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-motorola-moto-g-stylus-2023-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Motorola Moto G Stylus (2023) Location | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/world-cup-fans-turn-away-from-snapchat-and-facebook-over-online-insults/"><u>World Cup Fans Turn Away From Snapchat and Facebook Over Online Insults</u></a></li>
 </ul></div>
 
