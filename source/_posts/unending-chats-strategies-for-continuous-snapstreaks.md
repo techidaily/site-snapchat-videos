@@ -1,7 +1,7 @@
 ---
 title: "\"Unending Chats - Strategies for Continuous Snapstreaks\""
-date: 2024-11-29T23:53:08.998Z
-updated: 2024-12-04T21:01:55.268Z
+date: 2024-12-06T00:52:47.188Z
+updated: 2024-12-10T21:34:08.302Z
 tags:
   - ai video
   - ai snapchat
@@ -23,10 +23,6 @@ For those who don't have any idea about Snapchat streaks, they are essentially a
 
 In this article, we'll give you some **Snapchat streak ideas** to help you keep them alive and show your dedication to your friends.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Things You Should Know About Snapchat Streaks
 
 Snapchat streaks are a popular way to stay connected with friends on the app. But what are Snapstreaks, and how do they work?
@@ -44,7 +40,7 @@ We all know how important it is to keep up our Snapchat streaks - after all, it'
 * **Snapchat Spectacle:** Any snap sent through Snapchat spectacle won't be considered a Snapstreak interaction.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### (2) The Emojis Relevant To Snapchat Streak
@@ -69,10 +65,6 @@ Have you seen the dreaded **"hourglass"** emoji and your streak with your best f
 
 Don't worry; below, we've provided some **creative Snapstreak ideas** to help you never let your streak expire again!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tip 1\. Ideas To Create And Send Snaps Quickly
 
 Below are some tips/ideas to help you quickly create and send Snaps to keep your Snapchat streak alive:
@@ -82,6 +74,10 @@ Below are some tips/ideas to help you quickly create and send Snaps to keep your
 If you have run out of snap ideas, don't worry about sending a high-quality one. No one is judging you, so send a blank snap to keep the streak alive; however, edit it a little so it looks like you have put in some effort.
 
 ![sending a blank screen to keep streak alive](https://images.wondershare.com/filmora/article-images/2022/11/sending-a-blank-screen-to-keep-streak-alive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Idea 2\. Send Black Screen**
 
@@ -106,7 +102,7 @@ Food is always a good topic and can be one of the best ways to keep your Snapcha
 ![streak daily food](https://images.wondershare.com/filmora/article-images/2022/11/streak-daily-food.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tip 2\. Seize Occasions And Keep Your Snapchat Sneak Alive
@@ -126,6 +122,10 @@ We all have memorable days in our lives, like a milestone, graduation, or specia
 Whenever you are on a trip, travel to your office/college, or head out to run some errands, remember to take a picture of the surroundings that look interesting and send it to whom you are establishing the streak.
 
 ![send snapstreak while traveling](https://images.wondershare.com/filmora/article-images/2022/11/send-snapstreak-while-traveling.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 3\. Organize Your Snapchat And Your Time
 
@@ -153,6 +153,10 @@ If you're trying to keep up with multiple Snapstreaks at once, it's easy to forg
 
 Whenever you're about to send a new snap, swipe through the filters. Here, you'll see a special Snapchat streak filter, which will show how many consecutive days of successful streak you have in big white numbers next to the fire emoji.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 In this article, we've compiled a list of fun and creative **Snapchat streak ideas** to help you stay connected with your friends.
@@ -177,15 +181,15 @@ Hopefully, by following these tips, you can now keep your Snapchat streak alive 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Gain Recovery of Personal Snapshots
 
 Have you ever set some of your Snapchat pictures to "My Eyes Only" and then accidentally deleted them? Well, it's happened to the best of us. Whether it's a hilarious Snap streak with your best friend or a cute photo of your pet, losing important data can be frustrating.
 
 But don't worry, there's a way to recover them! In this article, we'll show you how to **recover "My Eyes Only" pictures on Snapchat**. We'll also discuss how you can change or retrieve your password if you've forgotten it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How To Recover Photos Deleted From "My Eyes Only" on Snapchat
 
@@ -210,9 +214,17 @@ Step3 Under the Privacy tab, find the **"My Data"** option and tap it.
 
 ![data recovery option snapchat](https://images.wondershare.com/filmora/article-images/2022/11/data-recovery-option-snapchat.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Log in to your **Snapchat account** once again, submit your request for data recovery from Snapchat's server and download it.
 
 ![sending request to snapchat to recover data](https://images.wondershare.com/filmora/article-images/2022/11/sending-request-to-snapchat-to-recover-data.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
@@ -236,15 +248,15 @@ Step3 Now, find a file with the **"a .nomedia"** extension, delete it, and the d
 
 Apart from reading the methods we provided for your, you can also watch this video tutorial to help you recover My Eyes Only pictures quickly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. A Bonus Tip: What If You Forget The Password Of My Eye Only
 
 If you've ever forgotten the password to your "My Eye Only" on Snapchat, don't worry; below, we've provided a few easy-to-follow instructions to help you quickly reset the password.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** If you opt to reset your current passcode, everything presently saved to My Eyes Only will be lost!!
 
@@ -261,10 +273,6 @@ Step3 Type your Snapchat password and tap **"Next."** Accept the rules and tap *
 Step4 Reset the password and tap **"Confirm"** to apply your changes.
 
 ## FAQs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How To Change My Eyes Only Password?
 
@@ -320,10 +328,6 @@ Be sure to follow the instructions carefully, and hopefully, you'll be able to g
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 2\. Using File Browser - For Android
 
 You can also recover your My Eyes Only snapshots from the File Manager on your device. However, this solution only works on Android devices because iPhones do not provide all access to apps for your data safety.
@@ -347,6 +351,10 @@ Apart from reading the methods we provided for your, you can also watch this vid
 If you've ever forgotten the password to your "My Eye Only" on Snapchat, don't worry; below, we've provided a few easy-to-follow instructions to help you quickly reset the password.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** If you opt to reset your current passcode, everything presently saved to My Eyes Only will be lost!!
 
@@ -396,10 +404,6 @@ Step2 Under the My Eyes Only tab, tap the **"Quick Setup"** option.
 
 Step3 Create a **passphrase** or **PIN** and confirm it. Now, check the box next to **"I understand that…,"** select "**Continue**," and tap the "**Finish**" option to complete the setup process.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How Do I Save Snaps To My Eyes Only By Default?
 
 To save your Snaps to My Eyes only by default, follow these instructions step-by-step:
@@ -409,10 +413,6 @@ Step1 Open your Snapchat account and tap your **Profile** icon.
 Step2 Tap the **Settings** icons at the top right-hand side of the screen and head to **Memories.**
 
 Step3 Now, tap the toggle button next to **"Save to My Eyes Only By Default"** to change the settings. Your snaps will now save to the My Eyes Only section every time.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -441,22 +441,22 @@ Be sure to follow the instructions carefully, and hopefully, you'll be able to g
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-streamline-your-snapchat-chat-and-calls-with-3-key-steps/"><u>[New] 2024 Approved Streamline Your Snapchat Chat and Calls with 3 Key Steps</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-cutting-edge-array-of-curiosity-queries-for-podcasting-for-2024/"><u>[New] Cutting-Edge Array of Curiosity Queries for Podcasting for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-view-from-above-discover-our-top-11-bridge-camera-picks/"><u>[New] In 2024, View From Above Discover Our Top 11 Bridge Camera Picks</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-mastering-quick-snapchat-lens-creation-two-simple-techniques/"><u>[Updated] 2024 Approved Mastering Quick Snapchat Lens Creation Two Simple Techniques</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-innovative-tech-discovering-the-top-9-microphone-recorders-online/"><u>[Updated] In 2024, Innovative Tech Discovering the Top 9 Microphone Recorders Online</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-instantly-spice-up-videos-on-facebook-with-music-steps/"><u>[Updated] In 2024, Instantly Spice Up Videos on Facebook With Music Steps</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-reimagine-your-snapchat-chats-with-ease-voice-change-guides-here/"><u>[Updated] In 2024, Reimagine Your Snapchat Chats with Ease Voice Change Guides Here</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-unseen-snaps-and-hushed-user-signal-to-check-for-blocks/"><u>[Updated] Unseen Snaps and Hushed User Signal to Check for Blocks</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-install-and-use-snapchat-on-your-mac/"><u>2024 Approved How to Install and Use Snapchat on Your Mac?</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-how-to-prevent-gaps-in-live-obs-broadcasting/"><u>2024 Approved How To Prevent Gaps In Live OBS Broadcasting</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Anti Tracker Software For Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-boosting-income-via-social-media-snapchats-methods/"><u>In 2024, Boosting Income via Social Media Snapchat's Methods</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-telltale-signs-your-chat-is-hidden/"><u>In 2024, Telltale Signs Your Chat Is Hidden</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-twitchstars-engaging-on-snapchat/"><u>In 2024, Twitchstars Engaging on Snapchat</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-unveiling-the-secrets-of-striking-youtube-live-images/"><u>In 2024, Unveiling the Secrets of Striking YouTube Live Images</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/top-10-best-4k-tvs-for-2024/"><u>Top 10 Best 4K TVs for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-fcpx-essentials-how-to-achieve-silky-smooth-video-playback/"><u>Updated In 2024, FCPX Essentials How to Achieve Silky Smooth Video Playback</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-visual-storytelling-hack-crafting-youtube-thumbnails-on-mobiles/"><u>[New] 2024 Approved Visual Storytelling Hack Crafting YouTube Thumbnails on Mobiles</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-covert-snapcapture-stealthy-tactics-for-unseen-picture-recording-for-2024/"><u>[New] Covert SnapCapture Stealthy Tactics for Unseen Picture Recording for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-essential-tips-for-mobile-screen-recording-of-snapchat-for-2024/"><u>[New] Essential Tips for Mobile Screen Recording of Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-personal-snap-chronicles-how-to-create-your-120plus-distinctive-story-titles-for-2024/"><u>[New] Personal Snap Chronicles How to Create Your 120+ Distinctive Story Titles for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-decoding-snapchat-emoji-language/"><u>[Updated] 2024 Approved Decoding Snapchat Emoji Language</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-beyond-the-basics-advanced-insights-into-snapchat-filters-for-2024/"><u>[Updated] Beyond the Basics Advanced Insights Into Snapchat Filters for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-cinema-excellence-in-home-recording-with-top-18-devices-for-2024/"><u>[Updated] Cinema Excellence in Home Recording with Top 18 Devices for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-navigate-the-transfer-of-quick-images-from-popular-chat-app/"><u>[Updated] In 2024, Navigate the Transfer of Quick Images From Popular Chat App</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-securely-transferring-camera-photos-to-snapchat-correctly/"><u>[Updated] In 2024, Securely Transferring Camera Photos to Snapchat Correctly</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-vivo-s18e-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Vivo S18e to iPhone | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/apex-troubles-heres-how-to-speedily-unblock-game-load-failures/"><u>Apex Troubles? Here's How to Speedily Unblock Game Load Failures</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/farm-frenzy-fun-pack-the-ultimate-agritainment-guide/"><u>Farm Frenzy Fun-Pack The Ultimate Agritainment Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-xiaomi-redmi-note-12-proplus-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Xiaomi Redmi Note 12 Pro+ 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-tecno-pova-5-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Tecno Pova 5 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-effortlessly-enhanced-images-learn-the-insider-snapchat-tactics/"><u>In 2024, Effortlessly Enhanced Images Learn the Insider Snapchat Tactics</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-on-your-iphone-6-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID On your iPhone 6?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/world-of-warcraft-slowdown-solutions-expert-tips-and-tricks-to-skyrocket-your-fps/"><u>World of Warcraft Slowdown Solutions: Expert Tips & Tricks to Skyrocket Your FPS</u></a></li>
 </ul></div>
 
