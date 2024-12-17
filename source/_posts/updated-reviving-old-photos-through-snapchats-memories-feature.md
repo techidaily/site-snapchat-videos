@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Reviving Old Photos Through Snapchat's Memories Feature"
-date: 2024-12-08T01:07:32.224Z
-updated: 2024-12-11T05:35:47.937Z
+date: 2024-12-16T17:52:16.674Z
+updated: 2024-12-17T16:09:25.966Z
 tags:
   - ai video
   - ai snapchat
@@ -43,13 +43,13 @@ Step1 Open your Snapchat and swipe up to open the 'Memories'. Go to your Camera 
 
 ![access camera roll tab](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 After choosing a particular photo, tap on the "**Edit**" icon at the bottom left corner. You can apply filters to the photo by swiping from right to left. Keep swiping until you can find your preferred filter.
 
 ![tap on edit option](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step1 Once you have applied the filter to the photo, touch on the "Send To" button. Choose any Snapchat friend to whom you want to send the picture. Next, hit the "Send" icon again to send the photo successfully.
 
@@ -71,13 +71,13 @@ Step3 Now close the picture opened for creating the sticker. Once done, take a s
 
 ![access the created stickers](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Once done with adding and adjusting the sticker, hit the "Send To" button. Choose your preferred contact and tap on the "Send" icon again.
 
 ![hit the send to button](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 3: Using the LMK App
 
@@ -108,10 +108,6 @@ Step5 After choosing the photo from the gallery, tap "Post to Snapchat." By doin
 Step6 Once done with removing the sticker and attached link, hit the "Send" button. Now choose a Snapchat contact and hit the "Send" button.
 
 ![send snap using lmk app](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-13.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 4: Casper APK for Android
 
@@ -149,6 +145,10 @@ Many youngsters are addicted to Snapchat to provide daily updates to their frien
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
@@ -169,13 +169,13 @@ Step2 After choosing a particular photo, tap on the "**Edit**" icon at the botto
 
 ![tap on edit option](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step1 Once you have applied the filter to the photo, touch on the "Send To" button. Choose any Snapchat friend to whom you want to send the picture. Next, hit the "Send" icon again to send the photo successfully.
 
 ![tap on send to button](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Using a Sticker
 
@@ -184,6 +184,10 @@ If you want to make your camera roll picture funny and entertaining, you can add
 Step1 Once you have opened your Snapchat, go to Memories. From there, you can access and select any picture from the Camera Roll.
 
 ![choose camera roll option](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 After selecting a specific picture from Camera Roll, tap on the "Pencil" icon at the bottom left corner to edit the photo. Afterward, select the "Scissor" icon from the right section. Using the Snapchat Scissor, you can create a sticker of any face or object you find interesting. Just select any area of the photo using your finger.
 
@@ -227,10 +231,6 @@ Step6 Once done with removing the sticker and attached link, hit the "Send" butt
 
 ![send snap using lmk app](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 4: Casper APK for Android
 
 Casper is an excellent alternative for Snapchat users. Using this app, you can instantly add stickers and filters to the captured snaps. You can also save and forward snaps using this app to other platforms. However, Casper is not available on the Play Store. You can download the [Casper APK](https://www.apkmirror.com/apk/casper-io/casper/) from your web browser easily. Before installing it, you should alter some settings from your phone, as described below:
@@ -238,6 +238,10 @@ Casper is an excellent alternative for Snapchat users. Using this app, you can i
 Step1 Open Settings from your phone and tap "Apps." Afterward, select "Manage Apps" to proceed.
 
 ![open manage apps settings](https://images.wondershare.com/filmora/article-images/2022/11/send-snaps-from-camera-roll-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 Once done, locate the "Google Chrome" option and turn on the toggle of "Install from unknown sources."
 
@@ -260,10 +264,6 @@ Many youngsters are addicted to Snapchat to provide daily updates to their frien
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -288,6 +288,10 @@ But have you ever wondered and thought about how people get those amazing images
 ![snapchat app](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-app.jpg)
 
 Therefore, without any further delay, let's dive in!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. What are Snapchat's Image Editing Tools?
 
@@ -377,10 +381,6 @@ Step3 Finally, use your finger to draw on the picture. You can use the Undo icon
 
 ![snapchat draw tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-draw-tool.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How To Add A Theme
 
 Adding a theme to your images on Snapchat is a great way to add some personality and style. Here's how you can do this:
@@ -390,10 +390,6 @@ Step1 Tap the **Paintbrush** icon from the Snapchat editing tools at the left of
 Step2 Search for the theme using the **Search box** or scroll up and down to find the one you like.
 
 Step3 Select the **theme** you want and tap on it to add to your photo. Keep in mind that Snapchat only adds themes to the original images, not from the **Camera Roll.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How To Attach A URL
 
@@ -406,6 +402,10 @@ Step1 On your selected picture, click the **Paperclip** icon to launch the URL t
 Step2 Type your **URL** in the search field, and tap **Enter** on your keyboard.
 
 Step3 Snapchat will open the website for your review. Tap the **"Attach to Snap"** option and adjust the link on your picture.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How To Crop Images On Snapchat
 
@@ -421,6 +421,10 @@ Step3 Finally, tap the **blue Check** icon to save your cropped image.
 
 If you want to learn how to zoom your videos or images on Snapchat, [click here to find out!](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Set a Time Limit
 
 You can set a time limit on your photo to limit their visibility while editing it on Snapchat. To do so, follow the below instructions step-by-step:
@@ -432,10 +436,6 @@ Step2 Swipe up and down to select the time limit and tap it.
 Step3 Finally, tap the **Clock icon** at the top right side of the screen to apply the time limit.
 
 ![setting time limit on picture](https://images.wondershare.com/filmora/article-images/2022/11/setting-time-limit-on-picture.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. How to Save Snaps for Later Sharing
 
@@ -459,6 +459,10 @@ Step2 Tap the **Save** icon in the lower left-hand corner of the screen.
 Step3 Tap the **"Save image."**
 
 ![snapchat sharing](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-sharing.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Saving the Edited Camera Roll's Pictures
 
@@ -492,10 +496,6 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
 
 For Android, download the AZ video recorder - an app that does not require any root access and lets you record your screen with a high resolution and frame rate. To learn more, [click here!](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 In this article, we've explained **how to edit photos on Snapchat** with simple and easy-to-follow instructions. We've discussed adding stickers, text, URL, time limit, theme, and cropping the image to remove unwanted sections from it.
@@ -517,17 +517,18 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-a-step-by-step-approach-to-snapchat-commerce-for-2024/"><u>[New] A Step-by-Step Approach to Snapchat Commerce for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-efficient-closer-viewing-techniques-to-use-in-google-meets/"><u>[Updated] 2024 Approved Efficient Closer Viewing Techniques to Use in Google Meets</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-screenscapes-the-new-tech-frontier/"><u>[Updated] 2024 Approved Screenscapes The New Tech Frontier</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-rapid-restoration-snapped-shenanigans/"><u>[Updated] Rapid Restoration Snapped Shenanigans</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/acceder-a-lencodage-de-video-hevc-gratuitement-avec-le-codeur-h265-comment-procede/"><u>Accéder À L’encodage De Vidéo HEVC Gratuitement Avec Le Codeur H.^265 : Comment Procédé</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/captivating-content-with-a-click-phones-and-youtube-for-2024/"><u>Captivating Content with a Click Phones & YouTube for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-vivo-g2-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Vivo G2.</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Realme C51 | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-exporting-snapchat-content-to-your-phones-gallery/"><u>In 2024, Exporting SnapChat Content to Your Phone's Gallery</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastering-simple-multi-snap-chat-video-creation-and-editing/"><u>In 2024, Mastering Simple Multi-Snap Chat Video Creation & Editing</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-simplifying-visual-sharing-in-ms-teams-with-snap-camera/"><u>In 2024, Simplifying Visual Sharing in MS Teams with Snap Camera</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/mastering-valheim-agriculture-seed-selection-insights-for-2024/"><u>Mastering Valheim Agriculture Seed Selection Insights for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-decoding-the-art-of-hidden-storytelling-on-snapchat/"><u>[New] 2024 Approved Decoding the Art of Hidden Storytelling on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-direct-send-from-camera-roll-your-easy-to-follow-guide/"><u>[New] Direct Send From Camera Roll Your Easy-to-Follow Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-spicing-up-chats-with-gifs-a-complete-snapchat-tutorial/"><u>[Updated] 2024 Approved Spicing Up Chats with GIFs A Complete Snapchat Tutorial</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-from-basic-snaps-to-expertly-crafted-images-on-snapchat/"><u>[Updated] In 2024, From Basic Snaps to Expertly Crafted Images on Snapchat</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-kinemaster-techniques-for-impeccable-storytelling-pace/"><u>[Updated] In 2024, Kinemaster Techniques for Impeccable Storytelling Pace</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-comprehensible-guide-to-marketing-on-snapchat-for-2024/"><u>[Updated] The Comprehensible Guide to Marketing on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unlocking-creative-potential-embedding-online-videos-in-slideshows/"><u>2024 Approved Unlocking Creative Potential Embedding Online Videos in Slideshows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-the-unable-to-record-macro-error-in-excel-2021-by-stellar-guide/"><u>How to Fix the Unable to Record Macro Error in Excel 2021?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Itel P55+? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-crafting-memorable-tiktok-pfps-that-differentiate-you/"><u>In 2024, Crafting Memorable TikTok PFPs that Differentiate You</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/stealthy-sharing-on-snapchat-the-perfect-tutorial-for-2024/"><u>Stealthy Sharing on Snapchat The Perfect Tutorial for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/storage-exploration-how-many-vids-can-64128gb-hold-for-2024/"><u>Storage Exploration How Many Vids Can 64/128GB Hold for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/the-ultimate-guide-capturing-scrollable-content-with-screen-shots-on-mac-16-techniques-explained-by-movavi/"><u>The Ultimate Guide: Capturing Scrollable Content with Screen Shots on Mac - 16 Techniques Explained by Movavi</u></a></li>
 </ul></div>
 

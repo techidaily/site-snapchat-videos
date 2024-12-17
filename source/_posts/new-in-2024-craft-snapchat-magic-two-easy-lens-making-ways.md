@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Craft Snapchat Magic  Two Easy Lens Making Ways\""
-date: 2024-12-09T23:22:27.081Z
-updated: 2024-12-10T16:55:06.864Z
+date: 2024-12-15T18:36:17.758Z
+updated: 2024-12-17T16:44:42.913Z
 tags:
   - ai video
   - ai snapchat
@@ -48,7 +48,7 @@ If you want some customization, or you just want to mess around until you get th
 ![lens studio](https://images.wondershare.com/filmora/article-images/Lens-Studio.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Lens Studio is for business
@@ -60,7 +60,7 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Use Lens Studio
@@ -92,7 +92,7 @@ The great thing about this application is that you can preview the lens before y
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
@@ -102,13 +102,13 @@ The great thing about this application is that you can preview the lens before y
 
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -117,7 +117,7 @@ Creating Snapchat lenses has never been easier. Whether you are a business looki
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -135,18 +135,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-stepwise-instructions-snapchat-for-mac-users/"><u>[New] 2024 Approved Stepwise Instructions Snapchat for Mac Users</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-enhancing-customer-engagement-with-snapchat-tactics/"><u>[New] Enhancing Customer Engagement with Snapchat Tactics</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-top-11-audio-capture-devices-for-live-broadcasts/"><u>[New] In 2024, Top 11 Audio Capture Devices for Live Broadcasts</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-pin-someone-on-snapchat-all-you-need-to-know-for-2024/"><u>[Updated] How to Pin Someone on Snapchat All You Need to Know for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-identifying-when-unfriended-on-snapchat/"><u>[Updated] Identifying When Unfriended on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-mastering-snapchat-profits-strategies-for-success/"><u>2024 Approved Mastering Snapchat Profits Strategies for Success</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/1728494482519-windows-11/"><u>簡単なステップでWindows 11でオフラインファイルを同期する方法</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/bring-life-to-pixels-add-motion-blur-for-2024/"><u>Bring Life to Pixels Add Motion Blur for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-your-vivo-y100-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Vivo Y100 5G Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-apple-iphone-13-pro-max-by-drfone-ios/"><u>How to Remove and Reset Face ID on Apple iPhone 13 Pro Max</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-instantaneous-creation-and-edits-of-dynamic-multi-snaps/"><u>In 2024, Instantaneous Creation & Edits of Dynamic Multi-Snaps</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-xiaomi-13-ultra-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Xiaomi 13 Ultra ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://win-special.techidaily.com/is-tweaking-windows-registry-safe-uncover-potential-pitfalls-with-expert-advice-by-yl-software/"><u>Is Tweaking Windows Registry Safe? Uncover Potential Pitfalls with Expert Advice by YL Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-concise-content-the-best-url-cutter-tools-for-youtubers/"><u>[New] 2024 Approved Concise Content The Best URL Cutter Tools for Youtubers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-top-10-ps5-external-hard-drives/"><u>[New] 2024 Approved Top 10 PS5 External Hard Drives</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-maintaining-a-continuous-snapchat-connection/"><u>[Updated] 2024 Approved Maintaining a Continuous Snapchat Connection</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-long-term-snappiness-keeping-streaks-uninterrupted-for-2024/"><u>[Updated] Long-Term Snappiness Keeping Streaks Uninterrupted for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-pro-level-insights-for-perfectly-crafted-snaps-for-2024/"><u>[Updated] Pro-Level Insights for Perfectly Crafted Snaps for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-secure-snap-savings-androidmac-apps-guide/"><u>[Updated] Secure Snap Savings Android/Mac Apps Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-art-of-crafting-content-for-snapchat-professionals-for-2024/"><u>[Updated] The Art of Crafting Content for Snapchat Professionals for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-perfect-your-gameplay-tips-for-professional-minecraft-sessions-on-mac/"><u>2024 Approved Perfect Your Gameplay Tips for Professional Minecraft Sessions on Mac</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-toshiba-devices-latest-bluetooth-drivers-download-now/"><u>Get Your Toshiba Device's Latest Bluetooth Drivers - Download Now</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-unlock-new-possibilities-filmora-x-adds-arm-support-for-2024/"><u>New Unlock New Possibilities Filmora X Adds ARM Support for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-selection-of-highly-ranked-11-ipad-air-sleeves-for-2econd-2024-edition/"><u>Ultimate Selection of Highly-Ranked 11 iPad Air Sleeves for 2Econd, 2024 Edition</u></a></li>
 </ul></div>
 
