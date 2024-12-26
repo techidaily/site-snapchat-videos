@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Step-by-Step Guide to Microsoft Teams Snap Photos for 2024\""
-date: 2024-12-11T17:33:40.424Z
-updated: 2024-12-17T16:33:44.924Z
+date: 2024-12-24T01:03:06.448Z
+updated: 2024-12-25T22:16:16.726Z
 tags:
   - ai video
   - ai snapchat
@@ -21,19 +21,11 @@ The trend of using vibrant filters and lenses during the pandemic time was first
 
 This article will address how to properly download and launch the Snap Camera app. Moreover, you can also learn to link the **Snap Camera on Microsoft Teams** easily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How To Download Snap Camera on Your PC or Mac?
 
 [Snap Camera](https://snapcamera.snapchat.com/) is a popular app that can change your visual appearance on many platforms. For instance, you can use the Snap Camera app on Skype, Microsoft Teams, Google Meetings, etc. This app offers attractive lenses and filters that can make your facial appearance interesting. To conduct a casual meeting with your friends, you can use the webcam of Snap Camera. The Snap Camera's webcam lets you greet your friends or colleagues in a unique manner.
 
 In this section, we will provide you with the exact system requirements of the Snap Camera. Also, we will guide you on how to install and launch the Snap Camera tool on your Windows or Mac device easily.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### System Requirements of Snap Camera
 
@@ -46,6 +38,10 @@ Step1 Visit the official website of Snap Camera and tap on the "Download" button
 
 ![tap on download button](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Click the "I agree" button and tap on the "I'm not a robot" option. Afterward, enter your email address in the given box.
 
 ![enter the email address](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-2.jpg)
@@ -53,6 +49,10 @@ Step2 Click the "I agree" button and tap on the "I'm not a robot" option. Afterw
 Step3 Afterward, click either "Download for Mac" or "Download for PC," depending on your need. Wait until the installer file gets downloaded on your computer completely. After that, double-click on the .exe file to install the **Snap Camera for Microsoft Teams** app.
 
 ![select the os to download](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How To Set up Snap Camera on your PC
 
@@ -92,6 +92,10 @@ This filter is for you if you want to highlight your presence by getting invisib
 
 ![invisible person filters](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Baby
 
 Do you want to take the sympathies of your colleagues? Try this filter to make a baby face to prevent yourself in vulnerable situations.
@@ -104,15 +108,15 @@ Are you the one who is always punctual in attending the virtual meetings? This f
 
 ![snorkle filter](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Drift Visor
 
 Drift Visor is a vibrant filter that can be used by IT experts. If you are a technical expert, use this filter during virtual meetings.
 
 ![drift visor filters](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -150,10 +154,6 @@ On the top of that, we will start with coming up with creative ideas for your Sn
 
 Below we've provided some tips for your Snapchat videos:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Idea 1\. Conduct Interviews Via Snaps
 
 If you are running your Snapchat like a YouTube channel, conducting interviews on Snapchat is a perfect way to get quick, candid responses from your interviewees. To make it more fun, captivating, and engaging, you can also use captivating Snaps to add a personal touch.
@@ -175,7 +175,11 @@ To make sure your snap Q&A goes off without a hitch, be sure to:
 ![snapchat q a session via stories](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-qa-session-via-stories.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Idea 3\. Fun Tidbits
@@ -200,15 +204,15 @@ There are numerous ways to use BTS footage to boost your business. For example, 
 
 ![taco bell behind the scene to their meetups](https://images.wondershare.com/filmora/article-images/2022/11/taco-bell-behind-the-scene-to-their-meetups.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Snapchat Post Ideas for Content Creation
 
 Above is about some creative ideas for picking topics for your Snapchat videos. Apart from that, the video's content is also important to hold the audience's attention. Whether you're a blogger, a small business owner, or just someone who likes to create content, unique presenting ways can help you stand out on Snapchat.
 
 If you're not sure where to start, here are some ideas for Snapchat content that you can create:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Idea 1\. Create Title Cards For Longer Snapchat Stories
 
@@ -244,10 +248,6 @@ However, you can only target an area between 20,000 and 5 million square feet. M
 
 ![snapchat on demand geo filters](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-on-demand-geo-filters.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### 2\. With AR/VR filters
 
 We all love filters, don't we? Whether it's a dog filter or a flower crown, filters add a touch of fun and personality to our photos and videos. With the advent of augmented reality (AR) and virtual reality (VR) technology, filters are getting even more creative and immersive.
@@ -258,6 +258,10 @@ For example, Dior created a Men Saddle Belt filter to promote its product and in
 
 ![dior filter on snapchat](https://images.wondershare.com/filmora/article-images/2022/11/dior-filter-on-snapchat.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### 3\. Using Filters In Your Snaps Or Stories
 
 When you are taking a Snap or creating a story, you can add filters to your photos or videos to add some visual interest and variation. These filters can change the color of your picture, add text or graphics, or even give them a fun effect.
@@ -265,10 +269,6 @@ When you are taking a Snap or creating a story, you can add filters to your phot
 Applying filters to your snaps is easy - just swipe through the options to find the perfect look. You can even use two or more filters at once by holding down on your screen to keep your current one set while you swipe to add more.
 
 To find more fun and interesting hidden filters, read our article: [How to find Snapchat hidden filters naturally](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Idea 4\. Adopting Lenses
 
@@ -283,6 +283,10 @@ So, how can you use lenses to create engaging Snapchat content? Here are a few i
 * Make your content unique and engaging to stand out from the rest.
 
 You can even create your own fun and captivating lenses on Snapchat. To learn how [click here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Snapchat Post Ideas For Marketing Promotion
 
@@ -299,10 +303,6 @@ A Quick Guide:
 
 Here are some techniques to create an engaging marketing campaign on Snapchat:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Idea 1\. Newsletter Sign-up CTAs
 
 Adding a newsletter sign-up [CTA](https://www.investopedia.com/terms/c/call-action-cta.asp) to your Snapchat marketing campaign can help you grow your email list and keep your audience engaged. Here's how to do it:
@@ -317,6 +317,10 @@ Adding a newsletter sign-up [CTA](https://www.investopedia.com/terms/c/call-acti
 Since you cannot add clickable links to your snaps, using a shortened URL is an excellent approach to help people follow up on your links.
 
 To get started, you need to find a URL shortener service such as [bitly.com](https://bitly.com/) and then begin sharing your shortened URLs with your Snapchat followers. You can add them to your snaps or post them in your story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Idea 3\. Sneak Peeks Of New Products
 
@@ -373,10 +377,6 @@ Step3 Add the coupon code or task to the Snap and share your coupon with your fo
 
 ![coupons on snapchat](https://images.wondershare.com/filmora/article-images/2022/11/coupons-on-snapchat.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Idea 3\. Host A Contest Or Giveaway
 
 You can also promote your business/brand on Snapchat by hosting a contest or giveaway. This can help you not only reach more people but also get them talking about your brand.
@@ -425,20 +425,22 @@ By following the tips, techniques, and ideas in this guide, you can create Snapc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-detecting-unregistered-friends-list-for-2024/"><u>[New] Detecting Unregistered Friends List for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-rediscovering-the-past-with-your-camera-roll-on-snapchat-for-2024/"><u>[New] Rediscovering the Past with Your Camera Roll on Snapchat for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-silence-unwanted-post-suggestions-on-insta/"><u>[New] Silence Unwanted Post Suggestions on Insta</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-harmonic-hits-on-snapchat-videos/"><u>[Updated] 2024 Approved Harmonic Hits on Snapchat Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-elevate-your-social-media-presence-with-these-snapchat-strategies/"><u>[Updated] Elevate Your Social Media Presence with These Snapchat Strategies</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-essential-15-ideas-to-boost-your-snap-score-for-2024/"><u>[Updated] Essential 15 Ideas to Boost Your Snap Score for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-instagram-photo-tap-guide/"><u>[Updated] The Instagram Photo-Tap Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhance-system-performance-by-scheduling-files-to-disappear-using-stellar-file-eraser-5/"><u>Enhance System Performance by Scheduling Files to Disappear Using Stellar File Eraser 5</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-lenovo-thinkphone-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Lenovo ThinkPhone Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-ultimate-tutorial-for-creating-delayed-videos-on-snapchat/"><u>In 2024, The Ultimate Tutorial for Creating Delayed Videos on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/learn-to-modify-snapchats-audio-effect-in-two-ways-for-2024/"><u>Learn to Modify Snapchat's Audio Effect in Two Ways for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/official-epson-v700-printer-drivers-compatible-with-all-windows-systems/"><u>Official Epson V700 Printer Drivers - Compatible with All Windows Systems</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/panne-de-sauvegarde-du-systeme-windows-server-201-weiterleitung-kathedrale-von-ripatransone/"><u>Panne De Sauvegarde Du Système Windows Server 201 #WEITERLEITUNG Kathedrale Von Ripatransone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/tackle-win11-sound-issues-update-hardware-software/"><u>Tackle Win11 Sound Issues - Update Hardware Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-quickstream-simple-steps-for-live-podcast-broadcasting/"><u>[New] 2024 Approved Quickstream Simple Steps for Live Podcast Broadcasting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/asy-and-speed-share-youtube-playlists-now-for-2024/"><u>[New] Easy & Speed Share YouTube Playlists Now for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-essential-list-the-10-free-android-and-iphone-video-chat-apps/"><u>[New] Essential List The 10 Free, Android & iPhone Video Chat Apps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snappy-solutions-maintaining-a-vigorous-snapstreak-for-2024/"><u>[New] Snappy Solutions Maintaining a Vigorous Snapstreak for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-art-of-subtlety-decoding-snapchats-concealed-messages-for-2024/"><u>[New] The Art of Subtlety Decoding Snapchat's Concealed Messages for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unlocking-snapchats-video-potential-mobile-tips-for-2024/"><u>[New] Unlocking Snapchat's Video Potential Mobile Tips for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-mastering-snapchats-call-and-chat-features/"><u>[Updated] 2024 Approved The Ultimate Guide Mastering Snapchat's Call & Chat Features</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-visual-narrative-magic-mastering-the-art-of-fading-edits/"><u>[Updated] 2024 Approved Visual Narrative Magic Mastering the Art of Fading Edits</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-archive-snaps-from-android-plus-mac-systems-for-2024/"><u>[Updated] How to Archive Snaps From Android + Mac Systems for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchat-emojis-the-real-meaning-you-may-not-know/"><u>[Updated] In 2024, Snapchat Emojis The Real Meaning You May Not Know</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snapchats-trendsetting-boomerangs-explained-for-2024/"><u>[Updated] SnapChat's Trendsetting Boomerangs Explained for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unmasking-the-significance-of-snapchat-emojis-for-2024/"><u>[Updated] Unmasking the Significance of Snapchat Emojis for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/pcwindows-1110/"><u>「別PCへのWindows 11/10システムイメージ移行：専門家からのガイダンス」</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fading-flourishes-invisible-audio-adjustments-in-garageband/"><u>2024 Approved Fading Flourishes Invisible Audio Adjustments in Garageband</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-vivo-y27-4g-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Vivo Y27 4G FRP Locks</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/step-by-step-guide-free-hd-movie-viewing-with-the-showbox-app-on-your-pc-windows-supported/"><u>Step-by-Step Guide: Free HD Movie Viewing with the ShowBox App on Your PC (Windows Supported)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transforming-video-conferencing-with-zoom-and-youtube-for-impactful-live-events/"><u>Transforming Video Conferencing with Zoom and YouTube for Impactful Live Events</u></a></li>
 </ul></div>
 

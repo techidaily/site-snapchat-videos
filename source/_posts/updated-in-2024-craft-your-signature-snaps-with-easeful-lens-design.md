@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Craft Your Signature Snaps with Easeful Lens Design"
-date: 2024-12-11T17:28:07.309Z
-updated: 2024-12-17T18:11:06.635Z
+date: 2024-12-20T22:34:25.861Z
+updated: 2024-12-25T21:55:25.319Z
 tags:
   - ai video
   - ai snapchat
@@ -48,7 +48,7 @@ If you want some customization, or you just want to mess around until you get th
 ![lens studio](https://images.wondershare.com/filmora/article-images/Lens-Studio.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Lens Studio is for business
@@ -60,7 +60,7 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Use Lens Studio
@@ -77,6 +77,10 @@ There is also a Lens Studio Overview guide that you can access online, which wil
 
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Use Studio Panels
 
 Are you ready to create your own custom Snapchat lens? It is time to head over to Studio Panels on the application. This is the area where you can add your own 2D or 3D objects, and you can visualize how they would look as a Snapchat filter. You can add, remove, resize and drag objects to specific areas of the screen.
@@ -86,7 +90,7 @@ There are other tools accessible from the Resources panel. You can use these too
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Preview the Snapchat Lens You Create
@@ -96,11 +100,7 @@ The great thing about this application is that you can preview the lens before y
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
@@ -135,18 +135,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-essential-guide-keeping-your-memories-of-snapchats-intact-for-2024/"><u>[New] Essential Guide Keeping Your Memories of Snapchats Intact for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-effortlessly-excel-at-creating-instagram-reels/"><u>[New] In 2024, Effortlessly Excel at Creating Instagram Reels</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-briefing-on-simple-strategies-for-crafting-snapchat-duos/"><u>[Updated] Briefing on Simple Strategies for Crafting Snapchat Duos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-conquering-snapchat-send-gifs-with-ease/"><u>[Updated] Conquering Snapchat Send Gifs with Ease</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-ultimate-guide-to-video-capture-obs-versus-bandicam-for-2024/"><u>[Updated] The Ultimate Guide to Video Capture OBS versus Bandicam for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-pro-level-mac-audio-logging-tools-uncover-the-top-5/"><u>2024 Approved Pro-Level Mac Audio Logging Tools Uncover the Top 5</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-unlocking-mobile-tech-how-to-record-your-snapchat-content/"><u>2024 Approved Unlocking Mobile Tech How to Record Your Snapchat Content</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/beyond-basics-pro-tips-for-sticker-queries-on-instagram-for-2024/"><u>Beyond Basics Pro Tips for Sticker Queries on Instagram for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/dodging-chroma-key-disasters-for-enhanced-videos-on-youtube/"><u>Dodging Chroma Key Disasters for Enhanced Videos on YouTube</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-revisiting-old-photos-sending-them-as-snaps-on-snapchat/"><u>In 2024, Revisiting Old Photos Sending Them as Snaps on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-straightforward-steps-installing-snapchat-on-mac/"><u>In 2024, Straightforward Steps Installing Snapchat on Mac</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/installing-hp-officejet-pro-8710-printer-drivers-on-windows-step-by-step-download-tutorial/"><u>Installing HP OfficeJet Pro 8710 Printer Drivers on Windows - Step by Step Download Tutorial</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ystery-of-unlisted-content-on-youtube-explored/"><u>The Mystery of Unlisted Content on YouTube Explored</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-snapping-and-recording-screen-on-macos/"><u>[New] 2024 Approved Snapping and Recording Screen on macOS</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-memories-transforming-snapshayers-to-share-for-2024/"><u>[New] Mastering Memories Transforming Snapshayer's to Share for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-private-chronicles-in-snapchat-an-essential-guide-for-2024/"><u>[New] Private Chronicles in Snapchat An Essential Guide for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-techniques-for-capturing-and-storing-android-and-mac-snaps-for-2024/"><u>[New] Techniques for Capturing and Storing Android & Mac Snaps for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-complete-checklist-for-youtube-metrics-mastery-views-and-dollars/"><u>[Updated] 2024 Approved The Complete Checklist for YouTube Metrics Mastery Views & Dollars</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-ensuring-quality-export-of-camera-images-for-snapchat-sharing/"><u>[Updated] Ensuring Quality Export of Camera Images for Snapchat Sharing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-melodious-memories-capturing-songs-in-your-snaps-for-2024/"><u>[Updated] Melodious Memories Capturing Songs in Your Snaps for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-optimal-methods-for-viewing-nba-games-online/"><u>[Updated] Optimal Methods for Viewing NBA Games Online</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-picture-perfect-presentations-posting-on-youtube-for-2024/"><u>[Updated] Picture-Perfect Presentations Posting on YouTube for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-detect-if-someone-has-muted-or-blocked-you-on-snapchat/"><u>2024 Approved How to Detect If Someone Has Muted or Blocked You on Snapchat</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-motorola-moto-g24-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Motorola Moto G24 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-vivo-y77t-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/proactive-preservation-ios-photos-to-your-snap-story-for-2024/"><u>Proactive Preservation IOS Photos to Your Snap Story for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-viewing-the-entire-dragon-ball-series-sequentially/"><u>Step-by-Step Guide: Viewing the Entire Dragon Ball Series Sequentially</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/supreme-softbox-selection-photographys-best-tools/"><u>Supreme Softbox Selection: Photography's Best Tools</u></a></li>
 </ul></div>
 

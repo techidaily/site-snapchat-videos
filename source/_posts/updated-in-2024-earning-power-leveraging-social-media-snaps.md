@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Earning Power  Leveraging Social Media Snaps\""
-date: 2024-12-13T16:28:17.509Z
-updated: 2024-12-17T18:03:14.340Z
+date: 2024-12-19T22:11:55.243Z
+updated: 2024-12-25T17:27:14.980Z
 tags:
   - ai video
   - ai snapchat
@@ -24,10 +24,6 @@ With the fast development of Snapchat and its great market potential, have you e
 ![snapchat app](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-app.jpg)
 
 In this step-by-step guide, we'll walk you through exactly **how to make money on Snapchat**; so whether you're looking to make a little extra cash on the side or want to start a full-fledged Snapchat marketing career, this article is for you!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. Snapchat Overview
 
@@ -102,6 +98,10 @@ For example, a famous content creator on Snapchat, Shaun McBride, collaborated w
 
 ![influencer marketing on snapchat](https://images.wondershare.com/filmora/article-images/2022/11/influencer-marketing-on-snapchat.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Create Snapchat Ads For Businesses**
 
 Ads are one of the commercial modes of Snapchat. While most business owners are unaware of Snapchat or how to use it to promote their products and services, you can grab this opportunity to earn more.
@@ -132,14 +132,10 @@ One limitation here is that you must have a larger number of Snapchat friends to
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** Avoid being too commercial. The audience's feeling is the most important thing to consider here.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 4: Refer Other Products (Affiliate Marketing)
 
@@ -183,6 +179,10 @@ Snapchat Spotlight is a new feature highlighting the best content from Snapchat 
 
 If you can create awesome content, this will help you expand your exposure instead of generating profits directly. To use the Spotlight, create a snap, add music or voiceover, and click the **"Send >Spotlight"** option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 8: Use Story Ads
 
 Story Ads let you expand your following base, increase your brand awareness, and get more customers around the globe by displaying ads in the Discovery feed on Snapchat. So, you must put your efforts into creating great story ads for maximum exposure.
@@ -194,10 +194,6 @@ If you offer services or owns a business and want to know how to put Ads on Snap
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ## FAQs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Do you get paid for views on Snapchat?
 
@@ -239,10 +235,6 @@ For example, a famous content creator on Snapchat, Shaun McBride, collaborated w
 
 ![influencer marketing on snapchat](https://images.wondershare.com/filmora/article-images/2022/11/influencer-marketing-on-snapchat.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Create Snapchat Ads For Businesses**
 
 Ads are one of the commercial modes of Snapchat. While most business owners are unaware of Snapchat or how to use it to promote their products and services, you can grab this opportunity to earn more.
@@ -264,10 +256,6 @@ Similarly, Domino's created a non-skippable ad campaign, "New Bigger Better," in
 
 ![dominos snapchat ad](https://images.wondershare.com/filmora/article-images/2022/11/dominos-snapchat-ad.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 3: Promote Your Own Products Or Services To Increase Sales
 
 Aside from promoting other businesses, you can also promote your own products and services on Snapchat. You can share a clickable link or a downloadable asset of your product or service with your followers and friends.
@@ -286,10 +274,6 @@ Try to create content that is creative, engaging, and captivating for affiliate 
 
 If you want to know more about Snapchat Affiliate, please read _The Ultimate Snapchat Marketing Strategy That Converts_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 5\. Utilize Geofilter
 
 Geofilters are a fun way to add creative flair to your snaps! These filters can be customized with personalized messages or designs for a specific event, new store openings, or grabbing users' attention and are available only at specific locations.
@@ -300,10 +284,6 @@ There are two types of Geofilers:
 
 ![geo filter by starbucks](https://images.wondershare.com/filmora/article-images/2022/11/geo-filter-by-starbucks.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * **Community Geofilters:** These are free-to-create filters that must be approved by Snapchat and can be created for special events or landmarks.
 
 ![geo filter when visitinf grand canyon](https://images.wondershare.com/filmora/article-images/2022/11/geo-filter-when-visitinf-grand-canyon.jpg)
@@ -311,6 +291,10 @@ There are two types of Geofilers:
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** Make sure the location is intriguing to users while establishing a Geofilter.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 6: Use Sponsored Lenses
 
@@ -321,6 +305,10 @@ When you produce a campaign using sponsored lenses, the platform will guarantee 
 For instance, to accelerate their app's user growth, UK's famous Starling bank used an AR lens in 2019 to grab the viewer's attention. As a result, they received a 61% lower cost-per-install than their other campaign.
 
 Similarly, BACARDÍ produced a lens with the summer theme to enhance their brand awareness and drive more sales. In their ten days campaign, they reached over 2.5 M Snapchatters and increased the purchase intent of BACARDÍ products.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 7\. Get Featured On The Snapchat Spotlight
 
@@ -340,6 +328,10 @@ If you offer services or owns a business and want to know how to put Ads on Snap
 
 ## FAQs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Do you get paid for views on Snapchat?
 
 No, you will not get paid for views on Snapchat. To earn money, you have to use other means such as ads, affiliate marketing, etc.
@@ -355,6 +347,10 @@ No, Snapchat does not pay you for the number of views on your videos.
 ### What are Snapchat subscribers?
 
 Subscribers are different than friends. They are your followers who follow your content in the Discovery feed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -379,10 +375,6 @@ Hopefully, you find this guide informative, and now you have a clear idea of how
 Many people haven't backed up their camera roll to Snapchat due to the default settings. If you want to save each photo or video from your device on the Snapchat cloud, backing up the camera to the Memories is necessary. By doing so, you cannot lose important photos or videos from your phone.
 
 If you change the default settings of the Memories created from the camera roll, Snapchat will automatically create a backup of your Memories. In this regard, this article will guide you on **how to back up the camera roll to Snapchat** in the easiest way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: Backing up automatically - Creating Snapchat Stories from your Camera Roll
 
@@ -416,6 +408,10 @@ Step1 Once you have opened your Snapchat, tap on your Bitmoji icon. From there, 
 
 ![open snapchat settings](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Scroll down a little to find the option "Memories." Afterward, you can see the option "Backup Progress." If you can see the word "Complete," it means that your Memories are backed up completely. If not, connect your phone to a stable Wi-Fi connection.
 
 ![check the backup progress](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-6.jpg)
@@ -428,19 +424,23 @@ Step1 After opening Snapchat, head to its "Settings." In the Settings menu, loca
 
 ![choose memories option](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 After tapping on Memories, you can see various options. Among multiple options, turn on the toggle of "Smart Backup." Thus, Snapchat will automatically back up your Memories through this activated feature.
 
 ![enable the smart backup](https://images.wondershare.com/filmora/article-images/2022/11/back-up-camera-roll-to-snapchat-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: FAQs
 
 ### 1\. How to Backup Memories to Camera Roll on Snapchat?
 
 Open your Snapchat and head to its "Memories." From the "Snaps" section, select any snap that you want to save to Camera Roll. After choosing the snap, hit on the "Arrow" icon. Under the "Share Elsewhere" heading, press the "Download" icon. This will immediately save the snap on your Camera Roll.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How to Backup Pictures in Both Memories and Camera Roll?
 
@@ -475,22 +475,18 @@ Snapchat allows you to save the captured pictures and videos in their Memories. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-covert-snapcapture-stealthy-tactics-for-unseen-picture-recording/"><u>[New] 2024 Approved Covert SnapCapture Stealthy Tactics for Unseen Picture Recording</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-tips-for-finding-hidden-exclusive-photos-on-snapchat/"><u>[New] 2024 Approved Tips for Finding Hidden, Exclusive Photos on Snapchat</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-make-every-chat-memorable-how-to-send-engaging-gifs-on-snapchat/"><u>[New] In 2024, Make Every Chat Memorable How to Send Engaging Gifs on Snapchat</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-ultimate-guide-to-going-viral-with-tiktok-edits/"><u>[New] The Ultimate Guide to Going Viral with TikTok Edits</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-the-ultimate-snapchat-checklist-for-engaging-content-for-2024/"><u>[New] The Ultimate Snapchat Checklist for Engaging Content for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps/"><u>[Updated] Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-mastering-snapchats-call-and-chat-features/"><u>[Updated] The Ultimate Guide Mastering Snapchat's Call & Chat Features</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-capture-and-save-your-snapchat-screen-seamlessly/"><u>2024 Approved Capture and Save Your Snapchat Screen Seamlessly</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-keeping-memories-alive-on-androidmac-with-snaps/"><u>2024 Approved Keeping Memories Alive on Android/Mac with Snaps</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/captureking-high-definition-edition/"><u>CaptureKing High Definition Edition</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-smart-8-pro-phone-without-google-account-by-drfone-android/"><u>How to Unlock Infinix Smart 8 Pro Phone without Google Account?</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-a-step-by-step-guide-to-mastering-business-on-snap/"><u>In 2024, A Step-by-Step Guide to Mastering Business on Snap</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/quick-fixes-for-when-ocidll-goes-missing-or-vanishes-from-windows/"><u>Quick Fixes for When oci.dll Goes Missing or Vanishes From Windows</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/simplified-process-for-downloading-and-installing-the-compatible-epson-et-4550-drivers-for-windows-users/"><u>Simplified Process for Downloading & Installing the Compatible Epson ET-4550 Drivers for Windows Users</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-repairing-color-bleed-and-image-warping-issues-in-monitors/"><u>Step-by-Step Guide: Repairing Color Bleed and Image Warping Issues in Monitors</u></a></li>
-<li><a href="https://article-posts.techidaily.com/transform-images-into-movies-xp-software-guide-for-2024/"><u>Transform Images Into Movies XP Software Guide for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-22-efficient-ways-to-livestream-classes-without-paying/"><u>[New] In 2024, 22 Efficient Ways to Livestream Classes Without Paying</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-interpreting-the-lack-of-communication-a-block-indicator/"><u>[New] In 2024, Interpreting the Lack of Communication A Block Indicator</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-essential-manual-to-measure-youtube-success-metrics/"><u>[New] The Essential Manual to Measure YouTube Success Metrics</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-easy-steps-to-record-your-snapchat-screen/"><u>[Updated] 2024 Approved Easy Steps to Record Your Snapchat Screen</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-mastering-gifs-snapchats-step-by-step-guide-for-effortless-sharing/"><u>[Updated] In 2024, Mastering Gifs Snapchat's Step-By-Step Guide for Effortless Sharing</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-simplifying-image-reduction-creating-professional-thumbnails/"><u>[Updated] In 2024, Simplifying Image Reduction Creating Professional Thumbnails</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-capturing-memories-efficiently-phones-screen-save-for-snaps/"><u>2024 Approved Capturing Memories Efficiently Phones' Screen Save for Snaps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-mastery-of-storing-snaps-on-devices-post-snapchat-use/"><u>2024 Approved Mastery of Storing Snaps on Devices Post-Snapchat Use</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-rapid-audio-to-video-conversion-for-youtube-fans/"><u>2024 Approved Rapid Audio-to-Video Conversion for YouTube Fans</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-oneplus-nord-n30-se-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset OnePlus Nord N30 SE Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/best-iphone-file-restoration-programs-for-202-cuisine-a-comprehensive-guide-to-the-top-10-ios-17-support/"><u>Best iPhone File Restoration Programs for 202 Cuisine: A Comprehensive Guide to the Top 10 [iOS 17 Support]</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-definitive-verdict-on-blade-e-flite-mcx2-ready-to-fly-rc-helicopter-why-its-a-cut-above-the-rest/"><u>The Definitive Verdict on Blade E-Flite mCX2 Ready-To-Fly RC Helicopter - Why It's a Cut Above the Rest</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-8-solutions-expert-guide-on-resolving-multiversus-game-crashes/"><u>Top 8 Solutions: Expert Guide on Resolving MultiVersus Game Crashes</u></a></li>
 </ul></div>
 
