@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Eyes-Only Snap Retrieval on Social Media for 2024\""
-date: 2024-07-25T13:48:12.950Z
-updated: 2024-07-26T13:48:12.950Z
+date: 2025-01-08T18:13:27.490Z
+updated: 2025-01-11T03:53:12.898Z
 tags:
   - ai video
   - ai snapchat
@@ -21,6 +21,10 @@ Have you ever set some of your Snapchat pictures to "My Eyes Only" and then acci
 
 But don't worry, there's a way to recover them! In this article, we'll show you how to **recover "My Eyes Only" pictures on Snapchat**. We'll also discuss how you can change or retrieve your password if you've forgotten it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. How To Recover Photos Deleted From "My Eyes Only" on Snapchat
 
 1. [Method 1\. Recovering The Photos Via Snapchat - For iOS and Android](#part1-1)
@@ -28,9 +32,6 @@ But don't worry, there's a way to recover them! In this article, we'll show you 
 
 Have you accidentally deleted a photo from your "My Eyes Only" album on Snapchat, and you're now panicking because you think it's gone forever? Don't worry: with our two step-by-step methods provided below, you will surely retrieve your deleted snaps.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ### Method 1\. Recovering The Photos Via Snapchat - For iOS and Android
 
 The first method to **recover My Eyes Only pictures on Snapchat** is via the Privacy tab. Although it is a bit of a long process, this is surely going to work.
@@ -45,19 +46,21 @@ Step2 Tap the **Setting** icon and scroll down to the **Privacy** tab.
 
 Step3 Under the Privacy tab, find the **"My Data"** option and tap it.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![data recovery option snapchat](https://images.wondershare.com/filmora/article-images/2022/11/data-recovery-option-snapchat.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Log in to your **Snapchat account** once again, submit your request for data recovery from Snapchat's server and download it.
 
 ![sending request to snapchat to recover data](https://images.wondershare.com/filmora/article-images/2022/11/sending-request-to-snapchat-to-recover-data.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** Keep in mind that only the snaps saved in your memory roll will be revived by this method.
 
@@ -73,9 +76,6 @@ Step2 Head to **"Data,"** find the **"Snapchat data** or **com.snapchat.android"
 
 Step3 Now, find a file with the **"a .nomedia"** extension, delete it, and the data will be restored to your Snapchat account.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** This method is only effective for a brief amount of time. _Therefore, to recover your deleted Snaps, you should follow this method as soon as possible after they are deleted._
@@ -102,9 +102,6 @@ Step3 Type your Snapchat password and tap **"Next."** Accept the rules and tap *
 
 Step4 Reset the password and tap **"Confirm"** to apply your changes.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## FAQs
 
 ### How To Change My Eyes Only Password?
@@ -129,9 +126,6 @@ Step2 Choose the snap you want to move, tap and hold it.
 
 Step3 Select **"My Eyes Only"** to move your snap.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How Do I Set Up My Eyes Only?
 
 To set up "My Eyes Only" on Snapchat, do the following steps in sequence:
@@ -142,9 +136,6 @@ Step2 Under the My Eyes Only tab, tap the **"Quick Setup"** option.
 
 Step3 Create a **passphrase** or **PIN** and confirm it. Now, check the box next to **"I understand that…,"** select "**Continue**," and tap the "**Finish**" option to complete the setup process.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How Do I Save Snaps To My Eyes Only By Default?
 
 To save your Snaps to My Eyes only by default, follow these instructions step-by-step:
@@ -155,9 +146,6 @@ Step2 Tap the **Settings** icons at the top right-hand side of the screen and he
 
 Step3 Now, tap the toggle button next to **"Save to My Eyes Only By Default"** to change the settings. Your snaps will now save to the My Eyes Only section every time.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've provided two step-by-step methods to help you **recover My Eyes Only pictures on Snapchat** on your iOS or Android device**.** We've also discussed how you can change or recover the My Eyes Only password with easy-to-follow instructions.
@@ -188,14 +176,6 @@ Step3 Now, find a file with the **"a .nomedia"** extension, delete it, and the d
 
 Apart from reading the methods we provided for your, you can also watch this video tutorial to help you recover My Eyes Only pictures quickly.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## Part 2\. A Bonus Tip: What If You Forget The Password Of My Eye Only
 
 If you've ever forgotten the password to your "My Eye Only" on Snapchat, don't worry; below, we've provided a few easy-to-follow instructions to help you quickly reset the password.
@@ -218,9 +198,6 @@ Step4 Reset the password and tap **"Confirm"** to apply your changes.
 
 ## FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How To Change My Eyes Only Password?
 
 If you still remember the present password but want to change it, do the following steps to change the "My Eyes Only" password:
@@ -253,9 +230,6 @@ Step2 Under the My Eyes Only tab, tap the **"Quick Setup"** option.
 
 Step3 Create a **passphrase** or **PIN** and confirm it. Now, check the box next to **"I understand that…,"** select "**Continue**," and tap the "**Finish**" option to complete the setup process.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How Do I Save Snaps To My Eyes Only By Default?
 
 To save your Snaps to My Eyes only by default, follow these instructions step-by-step:
@@ -290,16 +264,10 @@ Be sure to follow the instructions carefully, and hopefully, you'll be able to g
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Ultimate Guide to Seamless Snapchat Lens Creation
 
 # How to Create Snapchat Lenses Easily: 2 Methods
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -315,8 +283,199 @@ If you are a regular Snapchat user, you may want to learn about the Snapchat len
 * [**Part3: How to Create Snapchat Lenses Using Create Your Own Lens**](#part3)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 1: Comparing Lens Studio and Creating Your Own Lens
+
+The two programs that we are highlighting today are Lens Studio and Create Your Own Lens. These are both fantastic programs for creating your own Snapchat lens, but they do have slightly different uses. If you are the type of person who wants to design a professional Snapchat lens, you are going to prefer Lens Studio.
+
+But if you are hoping to come up with something creative that you can share with your friends and family, then you may love Create Your Own Lens. It is a very easy program to use, and it offers a ton of features that you may be surprised to see.
+
+#### Snapchat lenses is for fun
+
+The beauty of Snapchat lenses is that you can now create your own environment, which you can use each time you are taking photos or videos. Sure, you can always use the filters that are already available in the application, but not everyone would find those enough.
+
+If you want some customization, or you just want to mess around until you get the filter that makes sense for you, Snapchat lenses are the way to go.
+
+![lens studio](https://images.wondershare.com/filmora/article-images/Lens-Studio.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+#### Lens Studio is for business
+
+Lens Studio is perfect for businesses that may want to create unique environments for their clients, or the times when they are releasing company Snapchat posts. Say the company is hosting an event. They may want a custom graphic for that event, which is used for all the pictures and videos posted to Snapchat about the event. Using Lens Studio lets them do that with ease.
+
+Create Your Own Lens is great when you are going to a special event, birthday party or graduating, and you want a special graphic that comes up in all your snaps. It is very intuitive to use, and is available through the App Store as a download.
+
+![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
+
+## Part 2: How to Use Lens Studio
+
+#### 1\. Download Lens Studio
+
+The first step involves downloading Lens Studio, which you can do from your computer. It is compatible with both Windows and Mac computers, and will run on any semi-modern system. According to the Snapchat team, Lens Studio is similar to the program used by their AR teams to create lenses. That means you are getting similar functionality, but with an easier to manage interface.
+
+#### 2\. Choose Templates Page
+
+It is normal to feel a little overwhelmed the first time you try and use this program. But that is why the templates page is so great. You can select from templates depending on the type of lens that you are hoping to create. You can just use a template, or you can incorporate your own ideas to customize the template.
+
+There is also a Lens Studio Overview guide that you can access online, which will help you get acquainted with the program’s various features and quirks.
+
+![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+#### 3\. Use Studio Panels
+
+Are you ready to create your own custom Snapchat lens? It is time to head over to Studio Panels on the application. This is the area where you can add your own 2D or 3D objects, and you can visualize how they would look as a Snapchat filter. You can add, remove, resize and drag objects to specific areas of the screen.
+
+There are other tools accessible from the Resources panel. You can use these tools to ensure that your Snapchat lens is exactly as you want.
+
+![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
+
+#### 4\. Preview the Snapchat Lens You Create
+
+The great thing about this application is that you can preview the lens before you send it out to your phone. When you are satisfied with the image on the preview, you can pair your phone with the application, and you will be able to send that Snapchat lens onto your phone through your Snapcode. It is that simple!
+
+![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
+
+## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
+
+1. There are two ways that you can access the tool for creating fun Snapchat lenses. You can either visit the website snapchat.com/create, or you can go on the “filters and lenses” section on your iOS device. If you are using Snapchat on an Android device, you will only have the option for the website. But the feature is coming to the Android version of Snapchat very soon.
+2. When you are in the application or on the website, you may start to look at the different templates for Snapchat lenses. Now you can add other items into the templates, such as photographs, text or graphics.
+
+![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
+
+It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
+
+Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
+
+## Conclusion
+
+Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+Are you feeling like creating your own **Snapchat lens**, so you can have an even better experience with the app? The good news is that two new Snapchat tools have been released – the **Lens Studio** and Create Your Own Lens applications.
+
+If you are a regular Snapchat user, you may want to learn about the Snapchat lens and how it can help you. We will help you get started. Here is our step by step guide on how to make Snapchat lenses.
+
+* [**Part1: Comparing Lens Studio and Creating Your Own Lens**](#part1)
+* [**Part2: How to Use Lens Studio**](#part2)
+* [**Part3: How to Create Snapchat Lenses Using Create Your Own Lens**](#part3)
+
+## Part 1: Comparing Lens Studio and Creating Your Own Lens
+
+The two programs that we are highlighting today are Lens Studio and Create Your Own Lens. These are both fantastic programs for creating your own Snapchat lens, but they do have slightly different uses. If you are the type of person who wants to design a professional Snapchat lens, you are going to prefer Lens Studio.
+
+But if you are hoping to come up with something creative that you can share with your friends and family, then you may love Create Your Own Lens. It is a very easy program to use, and it offers a ton of features that you may be surprised to see.
+
+#### Snapchat lenses is for fun
+
+The beauty of Snapchat lenses is that you can now create your own environment, which you can use each time you are taking photos or videos. Sure, you can always use the filters that are already available in the application, but not everyone would find those enough.
+
+If you want some customization, or you just want to mess around until you get the filter that makes sense for you, Snapchat lenses are the way to go.
+
+![lens studio](https://images.wondershare.com/filmora/article-images/Lens-Studio.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+#### Lens Studio is for business
+
+Lens Studio is perfect for businesses that may want to create unique environments for their clients, or the times when they are releasing company Snapchat posts. Say the company is hosting an event. They may want a custom graphic for that event, which is used for all the pictures and videos posted to Snapchat about the event. Using Lens Studio lets them do that with ease.
+
+Create Your Own Lens is great when you are going to a special event, birthday party or graduating, and you want a special graphic that comes up in all your snaps. It is very intuitive to use, and is available through the App Store as a download.
+
+![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
+
+## Part 2: How to Use Lens Studio
+
+#### 1\. Download Lens Studio
+
+The first step involves downloading Lens Studio, which you can do from your computer. It is compatible with both Windows and Mac computers, and will run on any semi-modern system. According to the Snapchat team, Lens Studio is similar to the program used by their AR teams to create lenses. That means you are getting similar functionality, but with an easier to manage interface.
+
+#### 2\. Choose Templates Page
+
+It is normal to feel a little overwhelmed the first time you try and use this program. But that is why the templates page is so great. You can select from templates depending on the type of lens that you are hoping to create. You can just use a template, or you can incorporate your own ideas to customize the template.
+
+There is also a Lens Studio Overview guide that you can access online, which will help you get acquainted with the program’s various features and quirks.
+
+![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
+
+#### 3\. Use Studio Panels
+
+Are you ready to create your own custom Snapchat lens? It is time to head over to Studio Panels on the application. This is the area where you can add your own 2D or 3D objects, and you can visualize how they would look as a Snapchat filter. You can add, remove, resize and drag objects to specific areas of the screen.
+
+There are other tools accessible from the Resources panel. You can use these tools to ensure that your Snapchat lens is exactly as you want.
+
+![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
+
+#### 4\. Preview the Snapchat Lens You Create
+
+The great thing about this application is that you can preview the lens before you send it out to your phone. When you are satisfied with the image on the preview, you can pair your phone with the application, and you will be able to send that Snapchat lens onto your phone through your Snapcode. It is that simple!
+
+![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
+
+## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
+
+1. There are two ways that you can access the tool for creating fun Snapchat lenses. You can either visit the website snapchat.com/create, or you can go on the “filters and lenses” section on your iOS device. If you are using Snapchat on an Android device, you will only have the option for the website. But the feature is coming to the Android version of Snapchat very soon.
+2. When you are in the application or on the website, you may start to look at the different templates for Snapchat lenses. Now you can add other items into the templates, such as photographs, text or graphics.
+
+![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
+
+It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
+
+Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Conclusion
+
+Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+Are you feeling like creating your own **Snapchat lens**, so you can have an even better experience with the app? The good news is that two new Snapchat tools have been released – the **Lens Studio** and Create Your Own Lens applications.
+
+If you are a regular Snapchat user, you may want to learn about the Snapchat lens and how it can help you. We will help you get started. Here is our step by step guide on how to make Snapchat lenses.
+
+* [**Part1: Comparing Lens Studio and Creating Your Own Lens**](#part1)
+* [**Part2: How to Use Lens Studio**](#part2)
+* [**Part3: How to Create Snapchat Lenses Using Create Your Own Lens**](#part3)
+
 ## Part 1: Comparing Lens Studio and Creating Your Own Lens
 
 The two programs that we are highlighting today are Lens Studio and Create Your Own Lens. These are both fantastic programs for creating your own Snapchat lens, but they do have slightly different uses. If you are the type of person who wants to design a professional Snapchat lens, you are going to prefer Lens Studio.
@@ -351,10 +510,11 @@ It is normal to feel a little overwhelmed the first time you try and use this pr
 
 There is also a Lens Studio Overview guide that you can access online, which will help you get acquainted with the program’s various features and quirks.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Use Studio Panels
 
@@ -362,23 +522,12 @@ Are you ready to create your own custom Snapchat lens? It is time to head over t
 
 There are other tools accessible from the Resources panel. You can use these tools to ensure that your Snapchat lens is exactly as you want.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
 
 #### 4\. Preview the Snapchat Lens You Create
 
 The great thing about this application is that you can preview the lens before you send it out to your phone. When you are satisfied with the image on the preview, you can pair your phone with the application, and you will be able to send that Snapchat lens onto your phone through your Snapcode. It is that simple!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
 
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
@@ -386,25 +535,16 @@ No advertising on the website.
 1. There are two ways that you can access the tool for creating fun Snapchat lenses. You can either visit the website snapchat.com/create, or you can go on the “filters and lenses” section on your iOS device. If you are using Snapchat on an Android device, you will only have the option for the website. But the feature is coming to the Android version of Snapchat very soon.
 2. When you are in the application or on the website, you may start to look at the different templates for Snapchat lenses. Now you can add other items into the templates, such as photographs, text or graphics.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -445,9 +585,6 @@ Lens Studio is perfect for businesses that may want to create unique environment
 
 Create Your Own Lens is great when you are going to a special event, birthday party or graduating, and you want a special graphic that comes up in all your snaps. It is very intuitive to use, and is available through the App Store as a download.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
 ## Part 2: How to Use Lens Studio
@@ -470,237 +607,6 @@ Are you ready to create your own custom Snapchat lens? It is time to head over t
 
 There are other tools accessible from the Resources panel. You can use these tools to ensure that your Snapchat lens is exactly as you want.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
-
-#### 4\. Preview the Snapchat Lens You Create
-
-The great thing about this application is that you can preview the lens before you send it out to your phone. When you are satisfied with the image on the preview, you can pair your phone with the application, and you will be able to send that Snapchat lens onto your phone through your Snapcode. It is that simple!
-
-![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
-## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
-
-1. There are two ways that you can access the tool for creating fun Snapchat lenses. You can either visit the website snapchat.com/create, or you can go on the “filters and lenses” section on your iOS device. If you are using Snapchat on an Android device, you will only have the option for the website. But the feature is coming to the Android version of Snapchat very soon.
-2. When you are in the application or on the website, you may start to look at the different templates for Snapchat lenses. Now you can add other items into the templates, such as photographs, text or graphics.
-
-![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
-
-It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
-
-Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
-
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Conclusion
-
-Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-Are you feeling like creating your own **Snapchat lens**, so you can have an even better experience with the app? The good news is that two new Snapchat tools have been released – the **Lens Studio** and Create Your Own Lens applications.
-
-If you are a regular Snapchat user, you may want to learn about the Snapchat lens and how it can help you. We will help you get started. Here is our step by step guide on how to make Snapchat lenses.
-
-* [**Part1: Comparing Lens Studio and Creating Your Own Lens**](#part1)
-* [**Part2: How to Use Lens Studio**](#part2)
-* [**Part3: How to Create Snapchat Lenses Using Create Your Own Lens**](#part3)
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
-## Part 1: Comparing Lens Studio and Creating Your Own Lens
-
-The two programs that we are highlighting today are Lens Studio and Create Your Own Lens. These are both fantastic programs for creating your own Snapchat lens, but they do have slightly different uses. If you are the type of person who wants to design a professional Snapchat lens, you are going to prefer Lens Studio.
-
-But if you are hoping to come up with something creative that you can share with your friends and family, then you may love Create Your Own Lens. It is a very easy program to use, and it offers a ton of features that you may be surprised to see.
-
-#### Snapchat lenses is for fun
-
-The beauty of Snapchat lenses is that you can now create your own environment, which you can use each time you are taking photos or videos. Sure, you can always use the filters that are already available in the application, but not everyone would find those enough.
-
-If you want some customization, or you just want to mess around until you get the filter that makes sense for you, Snapchat lenses are the way to go.
-
-![lens studio](https://images.wondershare.com/filmora/article-images/Lens-Studio.JPG)
-
-#### Lens Studio is for business
-
-Lens Studio is perfect for businesses that may want to create unique environments for their clients, or the times when they are releasing company Snapchat posts. Say the company is hosting an event. They may want a custom graphic for that event, which is used for all the pictures and videos posted to Snapchat about the event. Using Lens Studio lets them do that with ease.
-
-Create Your Own Lens is great when you are going to a special event, birthday party or graduating, and you want a special graphic that comes up in all your snaps. It is very intuitive to use, and is available through the App Store as a download.
-
-![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
-## Part 2: How to Use Lens Studio
-
-#### 1\. Download Lens Studio
-
-The first step involves downloading Lens Studio, which you can do from your computer. It is compatible with both Windows and Mac computers, and will run on any semi-modern system. According to the Snapchat team, Lens Studio is similar to the program used by their AR teams to create lenses. That means you are getting similar functionality, but with an easier to manage interface.
-
-#### 2\. Choose Templates Page
-
-It is normal to feel a little overwhelmed the first time you try and use this program. But that is why the templates page is so great. You can select from templates depending on the type of lens that you are hoping to create. You can just use a template, or you can incorporate your own ideas to customize the template.
-
-There is also a Lens Studio Overview guide that you can access online, which will help you get acquainted with the program’s various features and quirks.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
-![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
-
-#### 3\. Use Studio Panels
-
-Are you ready to create your own custom Snapchat lens? It is time to head over to Studio Panels on the application. This is the area where you can add your own 2D or 3D objects, and you can visualize how they would look as a Snapchat filter. You can add, remove, resize and drag objects to specific areas of the screen.
-
-There are other tools accessible from the Resources panel. You can use these tools to ensure that your Snapchat lens is exactly as you want.
-
-![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
-
-#### 4\. Preview the Snapchat Lens You Create
-
-The great thing about this application is that you can preview the lens before you send it out to your phone. When you are satisfied with the image on the preview, you can pair your phone with the application, and you will be able to send that Snapchat lens onto your phone through your Snapcode. It is that simple!
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
-![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
-
-## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
-
-1. There are two ways that you can access the tool for creating fun Snapchat lenses. You can either visit the website snapchat.com/create, or you can go on the “filters and lenses” section on your iOS device. If you are using Snapchat on an Android device, you will only have the option for the website. But the feature is coming to the Android version of Snapchat very soon.
-2. When you are in the application or on the website, you may start to look at the different templates for Snapchat lenses. Now you can add other items into the templates, such as photographs, text or graphics.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
-![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
-
-It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
-
-Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
-## Conclusion
-
-Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
-
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-Are you feeling like creating your own **Snapchat lens**, so you can have an even better experience with the app? The good news is that two new Snapchat tools have been released – the **Lens Studio** and Create Your Own Lens applications.
-
-If you are a regular Snapchat user, you may want to learn about the Snapchat lens and how it can help you. We will help you get started. Here is our step by step guide on how to make Snapchat lenses.
-
-* [**Part1: Comparing Lens Studio and Creating Your Own Lens**](#part1)
-* [**Part2: How to Use Lens Studio**](#part2)
-* [**Part3: How to Create Snapchat Lenses Using Create Your Own Lens**](#part3)
-
-## Part 1: Comparing Lens Studio and Creating Your Own Lens
-
-The two programs that we are highlighting today are Lens Studio and Create Your Own Lens. These are both fantastic programs for creating your own Snapchat lens, but they do have slightly different uses. If you are the type of person who wants to design a professional Snapchat lens, you are going to prefer Lens Studio.
-
-But if you are hoping to come up with something creative that you can share with your friends and family, then you may love Create Your Own Lens. It is a very easy program to use, and it offers a ton of features that you may be surprised to see.
-
-#### Snapchat lenses is for fun
-
-The beauty of Snapchat lenses is that you can now create your own environment, which you can use each time you are taking photos or videos. Sure, you can always use the filters that are already available in the application, but not everyone would find those enough.
-
-If you want some customization, or you just want to mess around until you get the filter that makes sense for you, Snapchat lenses are the way to go.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
-![lens studio](https://images.wondershare.com/filmora/article-images/Lens-Studio.JPG)
-
-#### Lens Studio is for business
-
-Lens Studio is perfect for businesses that may want to create unique environments for their clients, or the times when they are releasing company Snapchat posts. Say the company is hosting an event. They may want a custom graphic for that event, which is used for all the pictures and videos posted to Snapchat about the event. Using Lens Studio lets them do that with ease.
-
-Create Your Own Lens is great when you are going to a special event, birthday party or graduating, and you want a special graphic that comes up in all your snaps. It is very intuitive to use, and is available through the App Store as a download.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
-![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
-
-## Part 2: How to Use Lens Studio
-
-#### 1\. Download Lens Studio
-
-The first step involves downloading Lens Studio, which you can do from your computer. It is compatible with both Windows and Mac computers, and will run on any semi-modern system. According to the Snapchat team, Lens Studio is similar to the program used by their AR teams to create lenses. That means you are getting similar functionality, but with an easier to manage interface.
-
-#### 2\. Choose Templates Page
-
-It is normal to feel a little overwhelmed the first time you try and use this program. But that is why the templates page is so great. You can select from templates depending on the type of lens that you are hoping to create. You can just use a template, or you can incorporate your own ideas to customize the template.
-
-There is also a Lens Studio Overview guide that you can access online, which will help you get acquainted with the program’s various features and quirks.
-
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
-
-#### 3\. Use Studio Panels
-
-Are you ready to create your own custom Snapchat lens? It is time to head over to Studio Panels on the application. This is the area where you can add your own 2D or 3D objects, and you can visualize how they would look as a Snapchat filter. You can add, remove, resize and drag objects to specific areas of the screen.
-
-There are other tools accessible from the Resources panel. You can use these tools to ensure that your Snapchat lens is exactly as you want.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
 
 #### 4\. Preview the Snapchat Lens You Create
@@ -714,9 +620,6 @@ The great thing about this application is that you can preview the lens before y
 1. There are two ways that you can access the tool for creating fun Snapchat lenses. You can either visit the website snapchat.com/create, or you can go on the “filters and lenses” section on your iOS device. If you are using Snapchat on an Android device, you will only have the option for the website. But the feature is coming to the Android version of Snapchat very soon.
 2. When you are in the application or on the website, you may start to look at the different templates for Snapchat lenses. Now you can add other items into the templates, such as photographs, text or graphics.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
@@ -748,7 +651,22 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-enhance-viewing-experience-by-adjusting-snapchats-frame-rate/"><u>[New] 2024 Approved Enhance Viewing Experience by Adjusting Snapchat's Frame Rate</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-transform-snaps-into-anime-adventures-with-snapchat-filters/"><u>[New] 2024 Approved Transform Snaps Into Anime Adventures with Snapchat Filters</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-easy-guide-to-crafting-fun-snapchat-lenses/"><u>[New] Easy Guide to Crafting Fun Snapchat Lenses</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-essential-tips-for-enhancing-images-on-snapchat-for-2024/"><u>[New] Essential Tips for Enhancing Images on Snapchat for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-essential-15-ideas-to-boost-your-snap-score/"><u>[Updated] 2024 Approved Essential 15 Ideas to Boost Your Snap Score</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-expert-tips-on-seamless-multisnapping-videos-in-snapchat/"><u>[Updated] Expert Tips on Seamless Multisnapping Videos in Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchat-made-easy-your-guide-to-adding-and-sharing-gifs/"><u>[Updated] In 2024, Snapchat Made Easy Your Guide to Adding and Sharing Gifs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-step-by-step-guide-to-elevating-your-channel-brand-growth-in-viewers/"><u>[Updated] In 2024, Step-by-Step Guide to Elevating Your Channel Brand, Growth in Viewers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-maximizing-video-impact-on-youtube-top-video-formats/"><u>[Updated] Maximizing Video Impact on YouTube – Top Video Formats</u></a></li>
+<li><a href="https://media-tips.techidaily.com/hd1080p/"><u>全功能免費HD播放器:支援1080p高清並可轉換多種影片格式</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/before-you-level-up-5-imperative-points-to-review-when-shopping-for-consoles/"><u>Before You Level Up: 5 Imperative Points to Review When Shopping for Consoles</u></a></li>
+<li><a href="https://techidaily.com/samsung-galaxy-s23-ultra-won-t-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Samsung Galaxy S23 Ultra won’t play AVCHD .mts files</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-ultimate-guide-to-shooting-phenomenal-igtv-with-dslrsmartphone/"><u>The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unstuck-your-voice-expert-tips-for-resolving-mic-not-working-problems-with-beyond-the-wire-devices/"><u>Unstuck Your Voice: Expert Tips for Resolving 'Mic Not Working' Problems with Beyond The Wire Devices</u></a></li>
+</ul></div>
 
