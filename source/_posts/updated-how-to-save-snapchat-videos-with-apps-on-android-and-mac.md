@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Save Snapchat Videos with Apps on Android and Mac"
-date: 2025-01-15T22:40:12.016Z
-updated: 2025-01-16T20:17:53.470Z
+date: 2025-01-16T04:52:59.933Z
+updated: 2025-01-22T23:03:09.643Z
 tags:
   - ai video
   - ai snapchat
@@ -46,23 +46,19 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
 
 ![snapchat save without knowing](https://images.wondershare.com/filmora/article-images/snapchat-save-without-knowing.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 2. Browse the Snapchat inbox and view the desired Snap that you wish to save, and quickly take a screenshot. Make sure to be quick enough and do it before the Snap expires.
 3. Now, logout from your Snapchat account right after taking the screenshot. You need to follow the logout process according to your device specific settings. Being in ‘Airplane/Flight’ mode you can’t logout, but click the logout option anyway (this is vital!).
 
 ![snapchat log out](https://images.wondershare.com/filmora/article-images/snapchat-log-out.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. Here, you need to close the Snapchat app on your mobile phone by swiping out the Snapchat app (up/sideways depending on Android/iPhone) from your device’s force quit screen.
 5. Toggle off the ‘Airplane/Flight’ mode and wait until your phone connects to the Wi-Fi or mobile network. Now, launch the Snapchat app again and login with the same credentials. The Snaps you have taken screenshots of will still appear as unopened on the storyboard and your friend will have no clue about the Snap being screenshot.
 
  **Read More to Get :** [How to Screenshot on Snapchat without Them Knowing >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to save Snapchat videos on Mac
 
@@ -72,9 +68,17 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
 
 ![snapchat quicktime](https://images.wondershare.com/filmora/article-images/snapchat-quiktime.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2. This will make your Mac’s camera act as the primary camera/recording device. To turn the iPhone as the recording device, go to the QuickTime screen and tap the ‘downward arrow’ button adjacent to the record button. The iPhone will be available under both the Camera and Microphone section, choose it for both the options.
 
 ![snapchat record](https://images.wondershare.com/filmora/article-images/snapchat-record.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3. You’ll now notice that your iPhone’s screen has been mirrored with your Mac computer.
 4. Now, on your iPhone, go to Snapchat and browse the inbox. Subsequently, on your Mac, tap the ‘Record’ button and then start viewing the snaps on your iPhone. QuickTime will record everything from the snaps and save it on your computer.
@@ -90,6 +94,10 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
 2. Tap the ‘Record’ button in AZ Screen Recorder and then open Snapchat inbox. Browse through the content you want to record, the app will record everything on the go.
 
 ![snapchat az screen recorder](https://images.wondershare.com/filmora/article-images/snapchat-az-screen-recorder.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3. Stop the recording by tapping the ‘Record’ button again.
 
@@ -107,14 +115,10 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
 
 ![snapchat save memory](https://images.wondershare.com/filmora/article-images/snapchat-save-memory.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 4. If you forgot to save it before posting as a story, then go to the ‘Stories’ tab and click on the three vertical dots next to ‘My Story’ and select the video. Click the ‘Save’ button next to it to save Snapchat videos to your mobile.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -122,10 +126,6 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
  It is not impossible to save Snapchat videos to your Mac or Android phone. In fact, you just need to learn the right way that suits you. Be it through the apps to save Snapchat videos and stories or taking screenshots in ‘Airplane’ mode, you got to be quick and save what you like.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -142,22 +142,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-a-full-review-of-cutspace-suite-with-visualfx-tools-2023-for-2024/"><u>[New] A Full Review of CutSpace Suite with VisualFX Tools, 2023 for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-essential-tips-direct-camera-roll-upload-to-snapchat/"><u>[New] In 2024, Essential Tips Direct Camera Roll Upload to Snapchat</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-proven-youtube-tactics-for-maximum-impact-heres-what-you-need-to-know/"><u>[New] Proven YouTube Tactics for Maximum Impact – Here's What You Need to Know</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-make-every-snap-count-top-15-tips-and-tricks-for-2024/"><u>[Updated] How to Make Every Snap Count Top 15 Tips & Tricks for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-2023s-leading-pc-vr-headsets-revealed/"><u>[Updated] In 2024, 2023'S Leading PC VR Headsets Revealed</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-art-of-sustaining-snapstreaks-for-hours-on-end/"><u>[Updated] In 2024, The Art of Sustaining Snapstreaks for Hours on End</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-mastering-the-art-of-action-shots-with-gopro/"><u>[Updated] Mastering the Art of Action Shots with GoPro</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-savvy-techies-strategy-for-saving-snapshots-for-2024/"><u>[Updated] The Savvy Techie's Strategy for Saving Snapshots for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-user-friendly-way-of-migrating-snapchat-images-home-for-2024/"><u>[Updated] The User-Friendly Way of Migrating SnapChat Images Home for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-boosting-your-snapstreak-essential-tips-and-tricks/"><u>2024 Approved Boosting Your Snapstreak Essential Tips and Tricks</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/apple-iphone-15-pro-max-icloud-activation-lock-bypass-by-drfone-ios/"><u>Apple iPhone 15 Pro Max iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/igniting-instagram-interest-maximizing-content-reach-and-interactions-for-2024/"><u>Igniting Instagram Interest Maximizing Content Reach and Interactions for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-methods-for-efficiently-attaching-a-link-to-tiktok-bios/"><u>In 2024, Ultimate Methods for Efficiently Attaching a Link to TikTok Bios</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/mulching/"><u>Mulching</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/step-into-the-world-of-modified-snapchat-speeches-two-simple-steps-for-2024/"><u>Step Into the World of Modified Snapchat Speeches Two Simple Steps for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/windows-11-tutorial-how-to-save-online-radio-and-video-broadcasts-onto-your-pc/"><u>Windows 11 Tutorial: How to Save Online Radio and Video Broadcasts Onto Your PC</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/your-blueprint-to-mastering-the-snapchat-boomerang-skill/"><u>Your Blueprint to Mastering the Snapchat Boomerang Skill</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-mario-vs-donkey-kong-the-ultimate-switch-fighting-series/"><u>[New] 2024 Approved Mario Vs. Donkey Kong The Ultimate Switch Fighting Series</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-laugh-out-loud-with-cartoon-face-tricks-in-snapchat/"><u>[Updated] 2024 Approved Laugh Out Loud with Cartoon Face Tricks in Snapchat</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-navigate-with-precision-the-complete-guide-to-idevice-podcast-downloads/"><u>[Updated] 2024 Approved Navigate with Precision The Complete Guide to iDevice Podcast Downloads</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-engaging-consumers-effectively-through-snapbiz-insights-for-2024/"><u>[Updated] Engaging Consumers Effectively Through SnapBiz Insights for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-pioneering-techniques-to-improve-your-fb-video-ad-effectiveness/"><u>[Updated] Pioneering Techniques to Improve Your FB Video Ad Effectiveness</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-identifying-exclusion-from-chatsphere/"><u>2024 Approved Identifying Exclusion From Chatsphere</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-filter-frontier-your-ultimate-resource-for-creative-snaps/"><u>2024 Approved The Filter Frontier Your Ultimate Resource for Creative Snaps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/capture-more-than-memories-adding-fun-filters-to-snaps-for-2024/"><u>Capture More Than Memories Adding Fun Filters to Snaps for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-hands-on-the-most-affordable-vr-experience-with-metas-newly-launched-51ebyte-quest-3-headset-expert-analysis/"><u>Get Your Hands on the Most Affordable VR Experience with Meta's Newly Launched 51Ebyte Quest 3 Headset – Expert Analysis</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nubia-red-magic-9-proplus-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Nubia Red Magic 9 Pro+ Phone with Broken Screen</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/rapidly-reach-word-definitions-on-your-system/"><u>Rapidly Reach Word Definitions on Your System</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/save-big-now-limited-offer-on-gigabytes-32-inch-qhd-gaming-monitor-gs3n32q-at-a-steal-only-199/"><u>Save Big Now – Limited Offer on Gigabyte's 32-Inch QHD Gaming Monitor (GS3n32Q) at a Steal: Only $199</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-showdown-determining-the-best-between-alexa-and-google-assistant-for-you/"><u>The Ultimate Showdown: Determining the Best Between Alexa and Google Assistant for You</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-online-destinations-for-3d-shimmering-letters/"><u>Ultimate Online Destinations for 3D Shimmering Letters</u></a></li>
 </ul></div>
 

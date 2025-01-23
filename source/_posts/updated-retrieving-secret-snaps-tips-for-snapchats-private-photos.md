@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Retrieving Secret Snaps  Tips for Snapchat's Private Photos\""
-date: 2025-01-10T00:34:36.350Z
-updated: 2025-01-16T20:39:24.924Z
+date: 2025-01-18T02:26:46.205Z
+updated: 2025-01-22T19:14:16.414Z
 tags:
   - ai video
   - ai snapchat
@@ -28,6 +28,10 @@ But don't worry, there's a way to recover them! In this article, we'll show you 
 
 Have you accidentally deleted a photo from your "My Eyes Only" album on Snapchat, and you're now panicking because you think it's gone forever? Don't worry: with our two step-by-step methods provided below, you will surely retrieve your deleted snaps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 1\. Recovering The Photos Via Snapchat - For iOS and Android
 
 The first method to **recover My Eyes Only pictures on Snapchat** is via the Privacy tab. Although it is a bit of a long process, this is surely going to work.
@@ -40,13 +44,13 @@ Step2 Tap the **Setting** icon and scroll down to the **Privacy** tab.
 
 ![snapchat settings](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Under the Privacy tab, find the **"My Data"** option and tap it.
 
 ![data recovery option snapchat](https://images.wondershare.com/filmora/article-images/2022/11/data-recovery-option-snapchat.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Log in to your **Snapchat account** once again, submit your request for data recovery from Snapchat's server and download it.
 
@@ -55,10 +59,6 @@ Step4 Log in to your **Snapchat account** once again, submit your request for da
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** Keep in mind that only the snaps saved in your memory roll will be revived by this method.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 2\. Using File Browser - For Android
 
@@ -75,16 +75,12 @@ Step3 Now, find a file with the **"a .nomedia"** extension, delete it, and the d
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** This method is only effective for a brief amount of time. _Therefore, to recover your deleted Snaps, you should follow this method as soon as possible after they are deleted._
 
 Apart from reading the methods we provided for your, you can also watch this video tutorial to help you recover My Eyes Only pictures quickly.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. A Bonus Tip: What If You Forget The Password Of My Eye Only
 
@@ -140,6 +136,10 @@ Step2 Under the My Eyes Only tab, tap the **"Quick Setup"** option.
 
 Step3 Create a **passphrase** or **PIN** and confirm it. Now, check the box next to **"I understand that…,"** select "**Continue**," and tap the "**Finish**" option to complete the setup process.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How Do I Save Snaps To My Eyes Only By Default?
 
 To save your Snaps to My Eyes only by default, follow these instructions step-by-step:
@@ -149,6 +149,10 @@ Step1 Open your Snapchat account and tap your **Profile** icon.
 Step2 Tap the **Settings** icons at the top right-hand side of the screen and head to **Memories.**
 
 Step3 Now, tap the toggle button next to **"Save to My Eyes Only By Default"** to change the settings. Your snaps will now save to the My Eyes Only section every time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -196,23 +200,11 @@ Step2 Tap **"Options"** at the lower right corner of the screen and select **"Fo
 
 ![recover my eye only password](https://images.wondershare.com/filmora/article-images/2022/11/recover-my-eye-only-password.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Type your Snapchat password and tap **"Next."** Accept the rules and tap **"Continue"** to proceed further.
 
 Step4 Reset the password and tap **"Confirm"** to apply your changes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## FAQs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How To Change My Eyes Only Password?
 
@@ -286,15 +278,15 @@ The trend of using vibrant filters and lenses during the pandemic time was first
 
 This article will address how to properly download and launch the Snap Camera app. Moreover, you can also learn to link the **Snap Camera on Microsoft Teams** easily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How To Download Snap Camera on Your PC or Mac?
 
 [Snap Camera](https://snapcamera.snapchat.com/) is a popular app that can change your visual appearance on many platforms. For instance, you can use the Snap Camera app on Skype, Microsoft Teams, Google Meetings, etc. This app offers attractive lenses and filters that can make your facial appearance interesting. To conduct a casual meeting with your friends, you can use the webcam of Snap Camera. The Snap Camera's webcam lets you greet your friends or colleagues in a unique manner.
 
 In this section, we will provide you with the exact system requirements of the Snap Camera. Also, we will guide you on how to install and launch the Snap Camera tool on your Windows or Mac device easily.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### System Requirements of Snap Camera
 
@@ -315,6 +307,10 @@ Step3 Afterward, click either "Download for Mac" or "Download for PC," depending
 
 ![select the os to download](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How To Set up Snap Camera on your PC
 
 Do you want to set up the **Snap Camera for Microsoft Teams** on your computer? The setup process of the Snap Camera app is simple to follow. First, download the Snap Camera app on your computer successfully. Once done with launching the Snap Camera app, follow the below instructions:
@@ -323,17 +319,9 @@ Step1 After opening the Snap Camera app, click on the "Gear" icon. This will ope
 
 ![access the settings](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 In Snap Camera Settings, head to the "Choose your Camera" option. Here, choose your desktop's webcam to proceed. Afterward, select a filter on the app you want to apply during your virtual meeting.
 
 ![select your webcam](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 Now, you can utilize the Snap Camera app on Microsoft Teams. For this, open the Microsoft Teams app after setting up the Snap Camera on your PC.
 
@@ -367,17 +355,29 @@ Do you want to take the sympathies of your colleagues? Try this filter to make a
 
 ![baby filters](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Snorkle
 
 Are you the one who is always punctual in attending the virtual meetings? This filter can describe your dedication to the team's goals.
 
 ![snorkle filter](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Drift Visor
 
 Drift Visor is a vibrant filter that can be used by IT experts. If you are a technical expert, use this filter during virtual meetings.
 
 ![drift visor filters](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -404,18 +404,19 @@ Snap Camera is an advanced app that functions in altering the visual look. Using
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-11-best-practices-for-capturing-online-conferences-for-free/"><u>[New] In 2024, 11 Best Practices for Capturing Online Conferences for Free</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-instantly-restore-forgotten-snaps-for-2024/"><u>[New] Instantly Restore Forgotten Snaps for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-leading-pictorial-storage-hubs-for-2024/"><u>[New] Leading Pictorial Storage Hubs for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-detailed-steps-to-record-hulu-on-every-os-and-device-type/"><u>[Updated] Detailed Steps to Record Hulu on Every OS and Device Type</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-essential-gamer-perks-lowest-priced-monitors-and-keyboards-for-2024/"><u>[Updated] Essential Gamer Perks Lowest Priced Monitors & Keyboards for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-building-a-business-on-snapchat-a-beginners-blueprint/"><u>[Updated] In 2024, Building a Business on Snapchat A Beginner's Blueprint</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-comprehensible-guide-to-marketing-on-snapchat/"><u>[Updated] In 2024, The Comprehensible Guide to Marketing on Snapchat</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-revamp-photos-essential-color-correction-steps/"><u>2024 Approved Revamp Photos Essential Color Correction Steps</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/data-recovery-technician-software-recovers-all-types-of-data/"><u>Data Recovery Technician Software – Recovers All Types of Data</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/get-save-and-enjoy-discover-these-6-excellent-linkedin-downloader-tools/"><u>Get, Save, and Enjoy Discover These 6 Excellent LinkedIn Downloader Tools</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-chronoscope-effect-flip-your-snapchat-videos-right/"><u>In 2024, Chronoscope Effect Flip Your Snapchat Videos Right</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-rev-up-your-videos-10-best-free-speed-changing-apps-for-ios-and-android/"><u>New In 2024, Rev Up Your Videos 10 Best Free Speed Changing Apps for iOS and Android</u></a></li>
-<li><a href="https://win11.techidaily.com/perfecting-sticky-note-consistency-across-w11-devices/"><u>Perfecting Sticky Note Consistency Across W11 Devices</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-dominate-the-chart-with-this-high-engagement-video/"><u>[New] 2024 Approved Dominate the Chart with This High-Engagement Video</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-strategies-for-effective-b-roll-application/"><u>[New] In 2024, Strategies for Effective B-Roll Application</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-mastering-video-storage-of-snapchat-stories/"><u>[Updated] 2024 Approved Mastering Video Storage of Snapchat Stories</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-transform-your-snapshots-into-shares-heres-how/"><u>[Updated] 2024 Approved Transform Your Snapshots Into Shares – Here's How</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-turn-your-google-meet-into-a-youtube-live-event-for-2024/"><u>[Updated] How To Turn Your Google Meet Into a YouTube Live Event for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-a-snapshot-into-effective-business-use-of-snapchat/"><u>[Updated] In 2024, A Snapshot Into Effective Business Use of Snapchat</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-step-up-your-language-game-top-15-tools-to-turn-videos-into-universal-text/"><u>[Updated] Step Up Your Language Game Top 15 Tools to Turn Videos Into Universal Text</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-eager-ears-entertainment-where-to-download-laughable-rings/"><u>2024 Approved Eager-Ears Entertainment Where to Download Laughable Rings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-ultimate-guide-to-shoot-and-upload-immersive-footage-on-fb/"><u>2024 Approved The Ultimate Guide to Shoot & Upload Immersive Footage on FB</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-realme-narzo-60-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Realme Narzo 60 5G?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/effective-ways-to-capture-and-save-snapchat-media-on-phone-for-2024/"><u>Effective Ways to Capture and Save Snapchat Media on Phone for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-honor-magic-6-lite-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Honor Magic 6 Lite Phones with/without a PC</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/tackling-audio-playback-issues-in-audacity-try-these-5-key-solutions-to-resolve-sound-devices-error/"><u>Tackling Audio Playback Issues in Audacity? Try These 5 Key Solutions to Resolve Sound Devices Error.</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-ultimate-guide-to-seamless-snapchat-lens-creation/"><u>The Ultimate Guide to Seamless Snapchat Lens Creation</u></a></li>
 </ul></div>
 
