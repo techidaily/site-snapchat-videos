@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Tips for Perfecting Photos via Snapchat Edit Features"
-date: 2024-07-25T13:07:02.732Z
-updated: 2024-07-26T13:07:02.732Z
+date: 2025-01-23T17:45:40.972Z
+updated: 2025-01-30T17:07:54.202Z
 tags:
   - ai video
   - ai snapchat
@@ -25,9 +25,6 @@ But have you ever wondered and thought about how people get those amazing images
 
 Therefore, without any further delay, let's dive in!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Part 1\. What are Snapchat's Image Editing Tools?
 
 If you desire to add some extra flair to your photos, Snapchat's image editing tools are a great way to do it. These tools let you add filters, stickers, and other effects to your photos and videos.
@@ -52,6 +49,10 @@ A Quick Guide:
 8. [How To Crop Images On Snapchat](#part2-8)
 9. [How to Set a Time Limit](#part2-9)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Add Pictures from Your Camera Roll to Snapchat
 
 Here's a quick rundown of how to add pictures from your camera roll to Snapchat:
@@ -62,9 +63,6 @@ Step1 Open the **Snapchat app** on your device and tap the **"Two Overlayed Pict
 
 Step2 This will take you to **Memories.** Click the **Camera Roll** tab, scroll the pictures to add the one you want, and tap it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![snapchat camera roll](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-camera-roll.jpg)
 
 Step3 Now, you can send the picture to your friends, add it to your story, or edit it to create a masterpiece.
@@ -95,6 +93,10 @@ Step3 Next, swipe up and down to find the sticker you want and tap it to add to 
 
 ![snapchat stickers library](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-stickers-library.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Use the Snapchat Text Tool
 
 Want to add a caption or something interesting to your picture? With the following steps, you can easily add any text to your photos while editing them on Snapchat:
@@ -107,9 +109,6 @@ Step3 Next, use the **color meter** to change the font color. Tap the **white ic
 
 ![snapchat text tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-text-tool.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Draw on your Images
 
 Snapchat comes with a drawing tool that you can use to add a personal touch to your photos or create fun and unique designs in the following way:
@@ -122,6 +121,10 @@ Step3 Finally, use your finger to draw on the picture. You can use the Undo icon
 
 ![snapchat draw tool](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-draw-tool.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How To Add A Theme
 
 Adding a theme to your images on Snapchat is a great way to add some personality and style. Here's how you can do this:
@@ -132,9 +135,6 @@ Step2 Search for the theme using the **Search box** or scroll up and down to fin
 
 Step3 Select the **theme** you want and tap on it to add to your photo. Keep in mind that Snapchat only adds themes to the original images, not from the **Camera Roll.**
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How To Attach A URL
 
 Do you want to share a clickable website URL on your story to help your audience know the true meaning and concept behind the image? The Snapchat URL tool can help you!
@@ -146,6 +146,10 @@ Step1 On your selected picture, click the **Paperclip** icon to launch the URL t
 Step2 Type your **URL** in the search field, and tap **Enter** on your keyboard.
 
 Step3 Snapchat will open the website for your review. Tap the **"Attach to Snap"** option and adjust the link on your picture.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How To Crop Images On Snapchat
 
@@ -184,23 +188,6 @@ A Quick Guide:
 1. [Saving the Original Snapchat Pictures](#part3-1)
 2. [Saving the Edited Camera Roll's Pictures](#part3-2)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ### Saving the Original Snapchat Pictures
 
 Here's how you can save the original Snaps as a Snapchat user:
@@ -211,10 +198,11 @@ Step2 Tap the **Save** icon in the lower left-hand corner of the screen.
 
 Step3 Tap the **"Save image."**
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ![snapchat sharing](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-sharing.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Saving the Edited Camera Roll's Pictures
 
@@ -225,6 +213,10 @@ Step1 Once you've edited your picture, tap the Done option.
 Step2 Tap **"Save as Copy,"** and your picture will be saved to your gallery.
 
 Step3 Alternatively, you can tap the **Export** option and select **"Download"** to save the image to your phone's Gallery.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A Bonus Tips: How to Save Snapchat Videos with Apps on Android and Mac
 
@@ -248,9 +240,6 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
 
 For Android, download the AZ video recorder - an app that does not require any root access and lets you record your screen with a high resolution and frame rate. To learn more, [click here!](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've explained **how to edit photos on Snapchat** with simple and easy-to-follow instructions. We've discussed adding stickers, text, URL, time limit, theme, and cropping the image to remove unwanted sections from it.
@@ -269,19 +258,12 @@ Hopefully, you'll find this step-by-step guide helpful and can now use **Snapcha
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Regain Access to Confidential Snapshots
 
 Have you ever set some of your Snapchat pictures to "My Eyes Only" and then accidentally deleted them? Well, it's happened to the best of us. Whether it's a hilarious Snap streak with your best friend or a cute photo of your pet, losing important data can be frustrating.
 
 But don't worry, there's a way to recover them! In this article, we'll show you how to **recover "My Eyes Only" pictures on Snapchat**. We'll also discuss how you can change or retrieve your password if you've forgotten it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1\. How To Recover Photos Deleted From "My Eyes Only" on Snapchat
 
 1. [Method 1\. Recovering The Photos Via Snapchat - For iOS and Android](#part1-1)
@@ -301,11 +283,12 @@ Step2 Tap the **Setting** icon and scroll down to the **Privacy** tab.
 
 ![snapchat settings](https://images.wondershare.com/filmora/article-images/2022/11/snapchat-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Under the Privacy tab, find the **"My Data"** option and tap it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![data recovery option snapchat](https://images.wondershare.com/filmora/article-images/2022/11/data-recovery-option-snapchat.jpg)
 
 Step4 Log in to your **Snapchat account** once again, submit your request for data recovery from Snapchat's server and download it.
@@ -317,42 +300,31 @@ Step4 Log in to your **Snapchat account** once again, submit your request for da
 **Note:** Keep in mind that only the snaps saved in your memory roll will be revived by this method.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 2\. Using File Browser - For Android
 
 You can also recover your My Eyes Only snapshots from the File Manager on your device. However, this solution only works on Android devices because iPhones do not provide all access to apps for your data safety.
 
 Step1 Launch the **File browser or File app** on your device.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![file browser on android](https://images.wondershare.com/filmora/article-images/2022/11/file-browser-on-android.jpg)
 
 Step2 Head to **"Data,"** find the **"Snapchat data** or **com.snapchat.android"** file, and tap to open it.
 
 Step3 Now, find a file with the **"a .nomedia"** extension, delete it, and the data will be restored to your Snapchat account.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** This method is only effective for a brief amount of time. _Therefore, to recover your deleted Snaps, you should follow this method as soon as possible after they are deleted._
 
 Apart from reading the methods we provided for your, you can also watch this video tutorial to help you recover My Eyes Only pictures quickly.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2\. A Bonus Tip: What If You Forget The Password Of My Eye Only
 
 If you've ever forgotten the password to your "My Eye Only" on Snapchat, don't worry; below, we've provided a few easy-to-follow instructions to help you quickly reset the password.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** If you opt to reset your current passcode, everything presently saved to My Eyes Only will be lost!!
@@ -363,18 +335,12 @@ Step1 Open the Snapchat app on your Android or iOS device and tap the **overlaid
 
 Step2 Tap **"Options"** at the lower right corner of the screen and select **"Forgot Password."**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![recover my eye only password](https://images.wondershare.com/filmora/article-images/2022/11/recover-my-eye-only-password.jpg)
 
 Step3 Type your Snapchat password and tap **"Next."** Accept the rules and tap **"Continue"** to proceed further.
 
 Step4 Reset the password and tap **"Confirm"** to apply your changes.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## FAQs
 
 ### How To Change My Eyes Only Password?
@@ -389,9 +355,6 @@ Step3 Type your new PIN and tap **"Next."** Tap the "Use Passphrase" option if y
 
 Step4 Tap the box next to **"I understand that if …"** and tap **"Continue."** Finally, tap **"Finish"** to complete the process.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How Do I Move Snaps To My Eyes Only?
 
 Here's how you can move Snaps to the "My Eyes Only" section on Snapchat:
@@ -412,9 +375,6 @@ Step2 Under the My Eyes Only tab, tap the **"Quick Setup"** option.
 
 Step3 Create a **passphrase** or **PIN** and confirm it. Now, check the box next to **"I understand that…,"** select "**Continue**," and tap the "**Finish**" option to complete the setup process.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How Do I Save Snaps To My Eyes Only By Default?
 
 To save your Snaps to My Eyes only by default, follow these instructions step-by-step:
@@ -425,9 +385,6 @@ Step2 Tap the **Settings** icons at the top right-hand side of the screen and he
 
 Step3 Now, tap the toggle button next to **"Save to My Eyes Only By Default"** to change the settings. Your snaps will now save to the My Eyes Only section every time.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've provided two step-by-step methods to help you **recover My Eyes Only pictures on Snapchat** on your iOS or Android device**.** We've also discussed how you can change or recover the My Eyes Only password with easy-to-follow instructions.
@@ -440,56 +397,36 @@ Be sure to follow the instructions carefully, and hopefully, you'll be able to g
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2\. Using File Browser - For Android
 
 You can also recover your My Eyes Only snapshots from the File Manager on your device. However, this solution only works on Android devices because iPhones do not provide all access to apps for your data safety.
 
 Step1 Launch the **File browser or File app** on your device.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![file browser on android](https://images.wondershare.com/filmora/article-images/2022/11/file-browser-on-android.jpg)
 
 Step2 Head to **"Data,"** find the **"Snapchat data** or **com.snapchat.android"** file, and tap to open it.
 
 Step3 Now, find a file with the **"a .nomedia"** extension, delete it, and the data will be restored to your Snapchat account.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** This method is only effective for a brief amount of time. _Therefore, to recover your deleted Snaps, you should follow this method as soon as possible after they are deleted._
 
 Apart from reading the methods we provided for your, you can also watch this video tutorial to help you recover My Eyes Only pictures quickly.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. A Bonus Tip: What If You Forget The Password Of My Eye Only
 
 If you've ever forgotten the password to your "My Eye Only" on Snapchat, don't worry; below, we've provided a few easy-to-follow instructions to help you quickly reset the password.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** If you opt to reset your current passcode, everything presently saved to My Eyes Only will be lost!!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How To Reset My Eyes Only Password?
 
 Step1 Open the Snapchat app on your Android or iOS device and tap the **overlaid Photos** icon to head to the Memories section. Next, go to the "**My Eyes Only"** tab.
@@ -498,18 +435,16 @@ Step2 Tap **"Options"** at the lower right corner of the screen and select **"Fo
 
 ![recover my eye only password](https://images.wondershare.com/filmora/article-images/2022/11/recover-my-eye-only-password.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Type your Snapchat password and tap **"Next."** Accept the rules and tap **"Continue"** to proceed further.
 
 Step4 Reset the password and tap **"Confirm"** to apply your changes.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## FAQs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How To Change My Eyes Only Password?
 
 If you still remember the present password but want to change it, do the following steps to change the "My Eyes Only" password:
@@ -532,9 +467,6 @@ Step2 Choose the snap you want to move, tap and hold it.
 
 Step3 Select **"My Eyes Only"** to move your snap.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How Do I Set Up My Eyes Only?
 
 To set up "My Eyes Only" on Snapchat, do the following steps in sequence:
@@ -580,7 +512,24 @@ Be sure to follow the instructions carefully, and hopefully, you'll be able to g
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-mastering-quick-snapchat-lens-creation-two-simple-techniques/"><u>[New] 2024 Approved Mastering Quick Snapchat Lens Creation Two Simple Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-mpc-hc-high-quality-audio-and-video/"><u>[New] 2024 Approved MPC-HC High Quality Audio and Video</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-discovering-snapchats-video-capabilities-with-ease/"><u>[New] In 2024, Discovering Snapchat's Video Capabilities with Ease</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-expertly-selected-graphics-cards-for-peak-streaming-clarity/"><u>[New] In 2024, Expertly Selected Graphics Cards for Peak Streaming Clarity</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-instant-guide-setup-snapchat-for-mac-users/"><u>[New] In 2024, Instant Guide Setup Snapchat for Mac Users</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-capture-the-moment-right-using-snap-in-teams-for-2024/"><u>[Updated] Capture the Moment Right Using Snap in Teams for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-make-collab-videos-and-grow-your-channel-in-2024/"><u>[Updated] How to Make Collab Videos And Grow Your Channel, In 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-make-every-interaction-count-how-to-add-and-share-gifs-on-snapchat/"><u>[Updated] In 2024, Make Every Interaction Count How to Add and Share GIFs on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-step-by-step-to-snapchat-stardom-become-a-gif-virtuoso/"><u>[Updated] In 2024, Step-by-Step to Snapchat Stardom Become a GIF Virtuoso</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-profit-driven-tactics-for-successful-snapchat-brands/"><u>[Updated] Profit-Driven Tactics for Successful Snapchat Brands</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/cookiebot-driven-automation-enhancing-your-digital-marketing-efforts/"><u>Cookiebot-Driven Automation: Enhancing Your Digital Marketing Efforts</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-drivers-now-unleashing-full-potential-of-your-microsoft-wireless-mouse-5000/"><u>Download Drivers Now! Unleashing Full Potential of Your Microsoft Wireless Mouse 5000</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exciting-update-apples-new-complimentary-ai-features-revolutionize-coding-tools-unleash-your-potential-today/"><u>Exciting Update: Apple's New Complimentary AI Features Revolutionize Coding Tools - Unleash Your Potential Today!</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/intuitive-camera-roll-consolidation-step-by-step-snapchat-guide-for-2024/"><u>Intuitive Camera Roll Consolidation Step-by-Step Snapchat Guide for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95866141-9780316522052-the-healing-power-of-mindfulness/"><u>The Healing Power of Mindfulness | Free Book</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-solutions-for-troubleshooting-guided-access-glitches-on-iphones/"><u>Top Solutions for Troubleshooting Guided Access Glitches on iPhones</u></a></li>
+<li><a href="https://win-able.techidaily.com/44oh44kk44kv44og44kt44ol44o844gn5qw944gx44gp5yip55so44gz44kl44gf44kb44gu44ob44o844oi44k344o844oi44go5pya5paw5yws6kqn44kz44o844oj6ygp55so5pa55rov/"><u>メイクムキューで楽しく利用するためのチートシートと最新公認コード適用方法</u></a></li>
+</ul></div>
 
