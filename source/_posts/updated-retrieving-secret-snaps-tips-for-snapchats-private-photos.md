@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Retrieving Secret Snaps  Tips for Snapchat's Private Photos\""
-date: 2025-02-05T21:51:53.892Z
-updated: 2025-02-11T18:32:10.077Z
+date: 2025-02-28T16:34:19.646Z
+updated: 2025-03-02T16:28:23.504Z
 tags:
   - ai video
   - ai snapchat
@@ -21,20 +21,12 @@ Have you ever set some of your Snapchat pictures to "My Eyes Only" and then acci
 
 But don't worry, there's a way to recover them! In this article, we'll show you how to **recover "My Eyes Only" pictures on Snapchat**. We'll also discuss how you can change or retrieve your password if you've forgotten it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How To Recover Photos Deleted From "My Eyes Only" on Snapchat
 
 1. [Method 1\. Recovering The Photos Via Snapchat - For iOS and Android](#part1-1)
 2. [Method 2\. Using File Browser - For Android](#part1-2)
 
 Have you accidentally deleted a photo from your "My Eyes Only" album on Snapchat, and you're now panicking because you think it's gone forever? Don't worry: with our two step-by-step methods provided below, you will surely retrieve your deleted snaps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 1\. Recovering The Photos Via Snapchat - For iOS and Android
 
@@ -52,10 +44,6 @@ Step3 Under the Privacy tab, find the **"My Data"** option and tap it.
 
 ![data recovery option snapchat](https://images.wondershare.com/filmora/article-images/2022/11/data-recovery-option-snapchat.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Log in to your **Snapchat account** once again, submit your request for data recovery from Snapchat's server and download it.
 
 ![sending request to snapchat to recover data](https://images.wondershare.com/filmora/article-images/2022/11/sending-request-to-snapchat-to-recover-data.jpg)
@@ -64,10 +52,6 @@ Step4 Log in to your **Snapchat account** once again, submit your request for da
 
 **Note:** Keep in mind that only the snaps saved in your memory roll will be revived by this method.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 2\. Using File Browser - For Android
 
 You can also recover your My Eyes Only snapshots from the File Manager on your device. However, this solution only works on Android devices because iPhones do not provide all access to apps for your data safety.
@@ -85,10 +69,6 @@ Step3 Now, find a file with the **"a .nomedia"** extension, delete it, and the d
 **Note:** This method is only effective for a brief amount of time. _Therefore, to recover your deleted Snaps, you should follow this method as soon as possible after they are deleted._
 
 Apart from reading the methods we provided for your, you can also watch this video tutorial to help you recover My Eyes Only pictures quickly.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. A Bonus Tip: What If You Forget The Password Of My Eye Only
 
@@ -124,10 +104,6 @@ Step3 Type your new PIN and tap **"Next."** Tap the "Use Passphrase" option if y
 
 Step4 Tap the box next to **"I understand that if …"** and tap **"Continue."** Finally, tap **"Finish"** to complete the process.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How Do I Move Snaps To My Eyes Only?
 
 Here's how you can move Snaps to the "My Eyes Only" section on Snapchat:
@@ -137,10 +113,6 @@ Step1 Open the Snapchat app on your phone and go to the **Memories** section.
 Step2 Choose the snap you want to move, tap and hold it.
 
 Step3 Select **"My Eyes Only"** to move your snap.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How Do I Set Up My Eyes Only?
 
@@ -197,10 +169,6 @@ Apart from reading the methods we provided for your, you can also watch this vid
 If you've ever forgotten the password to your "My Eye Only" on Snapchat, don't worry; below, we've provided a few easy-to-follow instructions to help you quickly reset the password.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** If you opt to reset your current passcode, everything presently saved to My Eyes Only will be lost!!
 
@@ -283,10 +251,6 @@ Be sure to follow the instructions carefully, and hopefully, you'll be able to g
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Elevate Your Online Interactions: Master Microsoft Teams Snap
 
@@ -318,10 +282,6 @@ Step2 Click the "I agree" button and tap on the "I'm not a robot" option. Afterw
 Step3 Afterward, click either "Download for Mac" or "Download for PC," depending on your need. Wait until the installer file gets downloaded on your computer completely. After that, double-click on the .exe file to install the **Snap Camera for Microsoft Teams** app.
 
 ![select the os to download](https://images.wondershare.com/filmora/article-images/2022/11/snap-camera-for-microsoft-teams-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How To Set up Snap Camera on your PC
 
@@ -404,16 +364,22 @@ Snap Camera is an advanced app that functions in altering the visual look. Using
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-perfect-your-stories-top-6-apps-for-android-and-iphone-snap-editing/"><u>[New] 2024 Approved Perfect Your Stories Top 6 Apps for Android and iPhone Snap Editing</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-quick-and-easy-capturing-the-perfect-mac-snapped-footage/"><u>[New] 2024 Approved Quick & Easy Capturing the Perfect Mac-Snapped Footage</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-wattpad-stars-moments-on-snapchat/"><u>[New] 2024 Approved Wattpad Stars Moments on Snapchat</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-from-novice-to-geometric-master-crafting-perfect-circular-and-spherical-objects/"><u>[Updated] 2024 Approved From Novice to Geometric Master Crafting Perfect Circular & Spherical Objects</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-a-quick-tutorial-on-how-to-convert-image-to-youtube-thumbnail-for-2024/"><u>[Updated] A Quick Tutorial On How To Convert Image To YouTube Thumbnail for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/5-effective-ways-to-correct-the-black-display-issue-with-google-chrome/"><u>5 Effective Ways to Correct the Black Display Issue with Google Chrome</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/a-techies-playbook-screen-record-and-share-on-snapchat-for-2024/"><u>A Techie's Playbook Screen Record & Share on Snapchat for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-xiaomi-redmi-note-12t-pro-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Xiaomi Redmi Note 12T Pro to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/innovating-in-the-snapchat-space-trendsetting-ad-design-principles-for-2024/"><u>Innovating in the Snapchat Space Trendsetting Ad Design Principles for 2024</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/never-lose-a-beat-again-step-by-step-strategies-for-archiving-spotify-songs-permanently/"><u>Never Lose a Beat Again: Step-by-Step Strategies for Archiving Spotify Songs Permanently</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/stealthy-strategies-for-anonymous-instagram-broadcasts-for-2024/"><u>Stealthy Strategies for Anonymous Instagram Broadcasts for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-advanced-techniques-to-save-snapchat-stories-on-devices/"><u>[New] 2024 Approved Advanced Techniques to Save Snapchat Stories on Devices</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-xiaohongshu-elites-in-snapchat-playground/"><u>[New] In 2024, Xiaohongshu Elites in Snapchat Playground</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-innovative-snapchat-strategies-the-ultimate-list/"><u>[New] Innovative Snapchat Strategies The Ultimate List</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-mobile-screen-recording-in-snapchat/"><u>[New] Mastering Mobile Screen Recording in Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapshot-strategies-maintaining-consistent-snapstreaks-for-2024/"><u>[New] Snapshot Strategies Maintaining Consistent Snapstreaks for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unleash-creativity-your-comprehensible-guide-to-sharing-animated-messages-in-snapchat-for-2024/"><u>[New] Unleash Creativity Your Comprehensible Guide to Sharing Animated Messages in Snapchat for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-essential-software-for-live-video-recording/"><u>[Updated] 2024 Approved Essential Software for Live Video Recording</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-old-memories-new-snaps-utilizing-snapchats-camera-roll/"><u>[Updated] 2024 Approved Old Memories, New Snaps Utilizing Snapchat’s Camera Roll</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-comprehensive-guide-to-ae-type-effects/"><u>2024 Approved Comprehensive Guide to AE Type Effects</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-master-the-art-of-live-streaming-snapchat-videos/"><u>2024 Approved Master the Art of Live Streaming Snapchat Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-the-ultimate-guide-to-screen-capture-tools/"><u>2024 Approved The Ultimate Guide to Screen Capture Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/apple-enthusiasts-applaud-mondly-for-securing-10-ed-app-status/"><u>Apple Enthusiasts Applaud Mondly for Securing #10 Ed-App Status</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/best-8-ios-text-retrieval-tools-a-comprehensive-guide-with-stellar/"><u>Best 8 iOS Text Retrieval Tools: A Comprehensive Guide with Stellar</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-zte-nubia-z60-ultra-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your ZTE Nubia Z60 Ultra Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-honor-magic-6-lite-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Honor Magic 6 Lite to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-infinix-hot-30i-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Infinix Hot 30i</u></a></li>
 </ul></div>
 
